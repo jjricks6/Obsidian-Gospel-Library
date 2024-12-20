@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Shalmaneser|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Shearing house|Next Entry]]
+
+ The maritime plain, about 10 miles wide and 50 miles in length, extending from Carmel to Joppa, celebrated for its beauty and its flowers ([[Old Testament/1 Chronicles/1 Chronicles 5#^verse-16|1 Chr. 5:16]]; [[Old Testament/1 Chronicles/1 Chronicles 27#^verse-29|27:29]]; [[Old Testament/Song of Solomon/Song of Solomon 2#^verse-1|Song 2:1]]; [[Old Testament/Isaiah/Isaiah 33#^verse-9|Isa. 33:9]]; [[Old Testament/Isaiah/Isaiah 35#^verse-2|35:2]]; [[Old Testament/Isaiah/Isaiah 65#^verse-10|65:10]]; [[New Testament/Acts/Acts 9#^verse-35|Acts 9:35]]).
+
+[[Study Helps/Bible Dictionary/Shalmaneser|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Shearing house|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Camel's hair|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Canaanite|Next Entry]]
+
+ The name of the fourth son of Ham ([[Old Testament/Genesis/Genesis 9#^verse-22|Gen. 9:22]]; [[Old Testament/Genesis/Genesis 10#^verse-6|10:6]]); also used to denote the tribe inhabiting the lowland (hence the name) toward the Mediterranean coast of Palestine; sometimes as a general name for all the non-Israelite inhabitants of the country west of Jordan, called by the Greeks Phoenicians. The Hebrew and Phoenician languages were almost identical. As the Phoenicians were great traders, Canaanite came to denote merchant ([[Old Testament/Isaiah/Isaiah 23#^verse-8|Isa. 23:8]]; [[Old Testament/Ezekiel/Ezekiel 17#^verse-4|Ezek. 17:4]]; [[Old Testament/Hosea/Hosea 12#^verse-7|Hosea 12:7]]).
+
+[[Study Helps/Bible Dictionary/Camel's hair|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Canaanite|Next Entry]]

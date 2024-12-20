@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Canaan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cana of Galilee|Next Entry]]
+
+ In the case of [[New Testament/Matthew/Matthew 10#^verse-4|Matt. 10:4]] and [[New Testament/Mark/Mark 3#^verse-18|Mark 3:18]], which refer to Simon, one of the Twelve, the word should be Cananean rather than Canaanite; it has reference to his political attachments rather than his lineage or geographical point of origin. Simon is also called a Zelote in [[New Testament/Luke/Luke 6#^verse-15|Luke 6:15]] and [[New Testament/Acts/Acts 1#^verse-13|Acts 1:13]], Zelote probably having reference to the Zealots founded by Judas of Gamala, which sect was called the Cananeans, and who openly opposed the census of Cyrenius. In other instances, Canaanite refers to land of origin or lineage through Canaan, son of Ham, as in [[Old Testament/Genesis/Genesis 10#^verse-6|Gen. 10:6-19]]; [[Old Testament/Genesis/Genesis 12#^verse-5|12:5-6]]; and [[Pearl of Great Price/Abraham/Abraham 1#^verse-21|Abr. 1:21]].
+
+[[Study Helps/Bible Dictionary/Canaan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cana of Galilee|Next Entry]]

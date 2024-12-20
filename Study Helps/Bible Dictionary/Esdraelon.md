@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Esau|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Esdras|Next Entry]]
+
+ The Greek form of the Hebrew word Jezreel. The "great plain of Esdraelon" is also known in the Old Testament as the "valley of Megiddo"; it separates the hills of Samaria from those of Galilee and is the most fertile part of Palestine. It was crossed by several important highways and for that reason often provided a battleground ([[Old Testament/Judges/Judges 4|Judg. 4]]; [[Old Testament/Judges/Judges 5|5]]; [[Old Testament/Judges/Judges 7|7]]; [[Old Testament/1 Samuel/1 Samuel 31|1 Sam. 31]]; [[Old Testament/2 Chronicles/2 Chronicles 35#^verse-20|2 Chr. 35:20-27]]; see also [[New Testament/Revelation/Revelation 16#^verse-16|Rev. 16:16]]). See also [[Study Helps/Bible Dictionary/Armageddon|Armageddon]]; [[Study Helps/Bible Dictionary/Megiddo|Megiddo]].
+
+[[Study Helps/Bible Dictionary/Esau|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Esdras|Next Entry]]

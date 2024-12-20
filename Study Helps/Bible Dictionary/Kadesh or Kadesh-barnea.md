@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Jupiter|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kenites|Next Entry]]
+
+ Also called En-mishpat ([[Old Testament/Genesis/Genesis 14#^verse-7|Gen. 14:7]]) and "the water of Meribah" ([[Old Testament/Numbers/Numbers 20#^verse-13|Num. 20:13]]), a city in the southwest corner of Palestine, a well-watered and fruitful spot in the wilderness of Zin. (Not to be confused with the city of Kadesh in the north, the site of the great battle between the Egyptians and Hittites, about 1287 B.C.) Here Miriam died ([[Old Testament/Numbers/Numbers 20#^verse-1|Num. 20:1]]), and from here, two years after leaving Egypt, the 12 spies were sent to report upon the land of Canaan ([[Old Testament/Numbers/Numbers 13#^verse-26|Num. 13:26]]). On their return, a revolt broke out, and as a punishment the people were condemned by God to wander for 38 years.
+
+[[Study Helps/Bible Dictionary/Jupiter|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kenites|Next Entry]]

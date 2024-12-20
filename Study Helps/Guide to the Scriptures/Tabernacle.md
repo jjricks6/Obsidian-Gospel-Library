@@ -1,0 +1,11 @@
+[[Study Helps/Guide to the Scriptures/Synagogue|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Talent|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Ark of the Covenant|Ark of the Covenant]]; [[Study Helps/Guide to the Scriptures/Holy of Holies|Holy of Holies]]; [[Study Helps/Guide to the Scriptures/Temple, House of the Lord|Temple, House of the Lord]]
+
+ A house of the Lord, the center of Israel's worship during the Exodus from Egypt. The tabernacle was actually a portable temple and could be taken apart and reassembled. The children of Israel used a tabernacle until they built the temple of Solomon ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124#^verse-38|D&C 124:38]]).
+
+ God revealed the pattern of the tabernacle to Moses ([[Old Testament/Exodus/Exodus 26|Ex. 26-27]]), and the children of Israel built it according to that pattern ([[Old Testament/Exodus/Exodus 35|Ex. 35-40]]). When the tabernacle was complete, a cloud covered the tent, and the glory of the Lord filled the tabernacle ([[Old Testament/Exodus/Exodus 40#^verse-33|Ex. 40:33-34]]). The cloud was a sign of God's presence. At night, it had the appearance of a fire. When the cloud stayed over the tent, the children of Israel camped. When it moved, they moved with it ([[Old Testament/Exodus/Exodus 40#^verse-36|Ex. 40:36-38]]; [[Old Testament/Numbers/Numbers 9#^verse-17|Num. 9:17-18]]). The children of Israel carried the tabernacle with them during their wanderings in the desert and in their conquest of the land of Canaan. After that conquest, the tabernacle was located in Shiloh, the place that the Lord had chosen ([[Old Testament/Joshua/Joshua 18#^verse-1|Josh. 18:1]]). After the children of Israel built the temple of Solomon, the tabernacle entirely disappeared from history.
+
+ The Lord and Isaiah used the tabernacle as a symbol of the cities of Zion and Jerusalem at the time of the Lord's Second Coming ([[Old Testament/Isaiah/Isaiah 33#^verse-20|Isa. 33:20]]; [[Pearl of Great Price/Moses/Moses 7#^verse-62|Moses 7:62]]).
+
+[[Study Helps/Guide to the Scriptures/Synagogue|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Talent|Next Entry]]

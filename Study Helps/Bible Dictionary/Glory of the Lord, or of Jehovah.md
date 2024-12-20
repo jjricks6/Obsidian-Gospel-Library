@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gleanings|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Goad|Next Entry]]
+
+ An expression that occurs frequently in the Old Testament. It sometimes denotes the fulness of the majesty of God, revealed in the world and made known to men ([[Old Testament/Numbers/Numbers 14#^verse-21|Num. 14:21-22]]; [[Old Testament/Isaiah/Isaiah 6#^verse-3|Isa. 6:3]]; [[Old Testament/Isaiah/Isaiah 66#^verse-19|66:19]]); in other places it denotes some outward and visible manifestation of God's presence ([[Old Testament/Exodus/Exodus 33#^verse-17|Ex. 33:17-23]]; [[Old Testament/Ezekiel/Ezekiel 1#^verse-28|Ezek. 1:28]]; [[Old Testament/Ezekiel/Ezekiel 9#^verse-3|9:3]]; [[Old Testament/Ezekiel/Ezekiel 10#^verse-4|10:4, 18-19]]; [[Old Testament/Ezekiel/Ezekiel 11#^verse-23|11:23]]; [[Old Testament/Ezekiel/Ezekiel 43#^verse-2|43:2-5]]; [[New Testament/Luke/Luke 2#^verse-9|Luke 2:9]]; [[New Testament/Luke/Luke 9#^verse-32|9:32]]; [[New Testament/John/John 1#^verse-14|John 1:14]]).
+
+[[Study Helps/Bible Dictionary/Gleanings|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Goad|Next Entry]]

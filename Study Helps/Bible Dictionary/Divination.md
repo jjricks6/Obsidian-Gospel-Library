@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Dispersion|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Divorce|Next Entry]]
+
+ Any superstitious method of trying to discover the course of future events. Such practices have been found among all nations and in every age; they are frequently condemned in scripture ([[Old Testament/Leviticus/Leviticus 19#^verse-31|Lev. 19:31]]; [[Old Testament/Leviticus/Leviticus 20#^verse-6|20:6]]; [[Old Testament/Deuteronomy/Deuteronomy 18#^verse-10|Deut. 18:10]]; [[Old Testament/2 Kings/2 Kings 21#^verse-6|2 Kgs. 21:6]]; [[Old Testament/Isaiah/Isaiah 8#^verse-19|Isa. 8:19]]; [[Old Testament/Isaiah/Isaiah 19#^verse-3|19:3]]; [[New Testament/Acts/Acts 8#^verse-9|Acts 8:9]]; [[New Testament/Acts/Acts 13#^verse-6|13:6, 8]]; [[New Testament/Acts/Acts 16#^verse-16|16:16]]).
+
+[[Study Helps/Bible Dictionary/Dispersion|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Divorce|Next Entry]]

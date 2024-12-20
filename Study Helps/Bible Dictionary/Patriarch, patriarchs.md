@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Patmos|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Paul|Next Entry]]
+
+ A patriarch is called an evangelist in [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 107#^verse-39|D&C 107:39-52]]. As such, patriarch is an ordained office in the Melchizedek Priesthood. The fathers from Adam to Jacob were all patriarchs of this kind. The word as used in the Bible seems to denote also a title of honor to early leaders of the Israelites, such as David ([[New Testament/Acts/Acts 2#^verse-29|Acts 2:29]]) and the 12 sons of Jacob ([[New Testament/Acts/Acts 7#^verse-8|Acts 7:8-9]]). The word is of Greek derivation and means father-ruler; the Hebrew word it translates is simply father.
+
+[[Study Helps/Bible Dictionary/Patmos|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Paul|Next Entry]]

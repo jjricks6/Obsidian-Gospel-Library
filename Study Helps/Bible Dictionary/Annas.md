@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Anna|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Annunciation|Next Entry]]
+
+ Appointed high priest in A.D. 7 by the Roman legate Quirinius and deposed in A.D. 15 by Valerius Gratus. From A.D. 18-36 his son-in-law ([[New Testament/John/John 18#^verse-13|John 18:13]]) Joseph Caiaphas was high priest, and during this time Annas was a person of great influence in the Sanhedrin. Jesus, when arrested, was first brought to him ([[New Testament/John/John 18#^verse-13|John 18:13]]); he also took a leading part in the trial of the Apostles ([[New Testament/Acts/Acts 4#^verse-6|Acts 4:6]]). In accordance with Jewish custom he kept the title "high priest" after he was deposed from office.
+
+[[Study Helps/Bible Dictionary/Anna|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Annunciation|Next Entry]]

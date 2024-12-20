@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Troas|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Tyre|Next Entry]]
+
+ The turtledove, as in Song of Solomon: "the voice of the turtle is heard in our land," being a sign of springtime ([[Old Testament/Song of Solomon/Song of Solomon 2#^verse-11|2:11-13]]; see also [[Old Testament/Jeremiah/Jeremiah 8#^verse-7|Jer. 8:7]]). Turtledoves were used for offerings, as in [[Old Testament/Genesis/Genesis 15#^verse-9|Gen. 15:9]]; [[Old Testament/Leviticus/Leviticus 1#^verse-14|Lev. 1:14]]; [[Old Testament/Leviticus/Leviticus 5#^verse-7|5:7, 11]]; [[Old Testament/Leviticus/Leviticus 12#^verse-6|12:6-8]]; [[Old Testament/Leviticus/Leviticus 14#^verse-22|14:22, 30]]; [[Old Testament/Leviticus/Leviticus 15#^verse-29|15:29]]; [[Old Testament/Numbers/Numbers 6#^verse-10|Num. 6:10]]; [[New Testament/Luke/Luke 2#^verse-24|Luke 2:24]].
+
+[[Study Helps/Bible Dictionary/Troas|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Tyre|Next Entry]]

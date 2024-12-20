@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Asaph|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Asenath|Next Entry]]
+
+ The formal departure of the Risen Savior from the earth, 40 days after His Resurrection. During the 40 days He had visited from time to time with the Apostles, speaking to them "of things pertaining to the kingdom of God." The Ascension took place from a point on the Mount of Olives in the presence of the disciples. At that time two angels from heaven testified that in the future the Lord would return "in like manner." See [[New Testament/Mark/Mark 16#^verse-19|Mark 16:19]]; [[New Testament/Luke/Luke 24#^verse-51|Luke 24:51]]; [[New Testament/John/John 6#^verse-62|John 6:62]]; [[New Testament/Acts/Acts 1#^verse-9|Acts 1:9-12]].
+
+[[Study Helps/Bible Dictionary/Asaph|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Asenath|Next Entry]]

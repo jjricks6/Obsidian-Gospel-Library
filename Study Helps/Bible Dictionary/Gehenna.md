@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gaza|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Genealogy|Next Entry]]
+
+ The valley of Hinnom. South of Jerusalem, the scene of Moloch worship ([[Old Testament/2 Chronicles/2 Chronicles 28#^verse-3|2 Chr. 28:3]]; [[Old Testament/2 Chronicles/2 Chronicles 33#^verse-6|33:6]]; [[Old Testament/Jeremiah/Jeremiah 7#^verse-31|Jer. 7:31]]; [[Old Testament/Jeremiah/Jeremiah 19#^verse-2|19:2-6]]); polluted by Josiah ([[Old Testament/2 Kings/2 Kings 23#^verse-10|2 Kgs. 23:10]]); afterwards a place in which the refuse of the city was burned, and for that reason it was symbolic of the place of torment after death (see [[New Testament/Matthew/Matthew 5#^verse-29|Matt. 5:29-30]]; [[New Testament/Matthew/Matthew 10#^verse-28|10:28]]; [[New Testament/Matthew/Matthew 23#^verse-15|23:15, 33]]; [[New Testament/Mark/Mark 9#^verse-43|Mark 9:43, 45]]; [[New Testament/Luke/Luke 12#^verse-5|Luke 12:5]]; [[New Testament/James/James 3#^verse-6|James 3:6]]).
+
+[[Study Helps/Bible Dictionary/Gaza|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Genealogy|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gath|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gehenna|Next Entry]]
+
+ One of the five cities of the Philistines ([[Old Testament/Genesis/Genesis 10#^verse-19|Gen. 10:19]]; [[Old Testament/Joshua/Joshua 10#^verse-41|Josh. 10:41]]; [[Old Testament/Joshua/Joshua 11#^verse-22|11:22]]; [[Old Testament/Joshua/Joshua 15#^verse-47|15:47]]; [[Old Testament/Judges/Judges 1#^verse-18|Judg. 1:18]]; [[Old Testament/Judges/Judges 6#^verse-4|6:4]]). Its gates were carried away by Samson ([[Old Testament/Judges/Judges 16#^verse-1|Judg. 16:1-3, 21]]; see also [[Old Testament/1 Samuel/1 Samuel 6#^verse-17|1 Sam. 6:17]]; [[Old Testament/2 Kings/2 Kings 18#^verse-8|2 Kgs. 18:8]]). Prophecies concerning Gaza are found in [[Old Testament/Jeremiah/Jeremiah 47#^verse-1|Jer. 47:1, 5]]; [[Old Testament/Amos/Amos 1#^verse-6|Amos 1:6]]; [[Old Testament/Zephaniah/Zephaniah 2#^verse-4|Zeph. 2:4]]; [[Old Testament/Zechariah/Zechariah 9#^verse-5|Zech. 9:5]]. The name was also spelled Azzah.
+
+[[Study Helps/Bible Dictionary/Gath|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gehenna|Next Entry]]

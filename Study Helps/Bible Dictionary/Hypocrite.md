@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hymns|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hyssop|Next Entry]]
+
+ The word generally denotes one who pretends to be religious when he is not (though it is sometimes used to mean simply a bad man; see [[Old Testament/Job/Job 8#^verse-13|Job 8:13]]; [[Old Testament/Job/Job 13#^verse-16|13:16]]; [[Old Testament/Isaiah/Isaiah 9#^verse-17|Isa. 9:17]]; [[Old Testament/Isaiah/Isaiah 33#^verse-14|33:14]]). Hypocrisy was the besetting sin of the Pharisees and was severely condemned by the Lord ([[New Testament/Matthew/Matthew 23#^verse-13|Matt. 23:13-33]]; [[New Testament/Mark/Mark 12#^verse-38|Mark 12:38-40]]; [[New Testament/Luke/Luke 11#^verse-37|Luke 11:37-44]]; [[New Testament/Luke/Luke 20#^verse-46|20:46-47]]).
+
+[[Study Helps/Bible Dictionary/Hymns|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hyssop|Next Entry]]

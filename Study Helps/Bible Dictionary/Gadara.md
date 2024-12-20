@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gad|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gaius|Next Entry]]
+
+ Called in the New Testament "the country of the Gadarenes," Gadara was a city of Decapolis, southeast of the Sea of Galilee, on the main road to Damascus. The people were partly Greek and partly Syrian. The district is mentioned in [[New Testament/Mark/Mark 5#^verse-1|Mark 5:1]] and [[New Testament/Luke/Luke 8#^verse-26|Luke 8:26, 37]], in connection with the healing of a man with an unclean spirit; but the Gospels and the Greek manuscripts do not agree as to its name. Compare the above passages with [[New Testament/Matthew/Matthew 8#^verse-28|Matt. 8:28]]. The miracle was probably worked near Gergesa.
+
+[[Study Helps/Bible Dictionary/Gad|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gaius|Next Entry]]

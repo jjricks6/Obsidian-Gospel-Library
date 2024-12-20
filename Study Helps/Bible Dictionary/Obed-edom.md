@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Obed|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Occupy|Next Entry]]
+
+ Servant of Edom. A Levite belonging to the family of Kohath; called a Gittite because he belonged to the Levitical city of Gath-rimmon. The Ark was kept at his house for six months ([[Old Testament/2 Samuel/2 Samuel 6#^verse-10|2 Sam. 6:10-12]]; [[Old Testament/1 Chronicles/1 Chronicles 13#^verse-13|1 Chr. 13:13-14]]). He was made doorkeeper of the Ark in Zion ([[Old Testament/1 Chronicles/1 Chronicles 15#^verse-24|1 Chr. 15:24-25]]; [[Old Testament/1 Chronicles/1 Chronicles 16#^verse-5|16:5, 38]]). His family kept the temple storehouse ([[Old Testament/1 Chronicles/1 Chronicles 26#^verse-4|1 Chr. 26:4, 8, 15]]; [[Old Testament/2 Chronicles/2 Chronicles 25#^verse-24|2 Chr. 25:24]]).
+
+[[Study Helps/Bible Dictionary/Obed|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Occupy|Next Entry]]

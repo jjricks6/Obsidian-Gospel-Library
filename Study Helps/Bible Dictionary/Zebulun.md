@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Zeboim, Zeboiim|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Zechariah|Next Entry]]
+
+ Son of Jacob and Leah ([[Old Testament/Genesis/Genesis 30#^verse-20|Gen. 30:20]]); inheritance of the tribe ([[Old Testament/Joshua/Joshua 19#^verse-10|Josh. 19:10-16, 27, 34]]); Levitical cities (four) in [[Old Testament/Joshua/Joshua 21#^verse-7|21:7, 34]]; [[Old Testament/Judges/Judges 1#^verse-30|Judg. 1:30]]; take part with Deborah and Barak, and they are commended ([[Old Testament/Judges/Judges 4#^verse-6|Judg. 4:6, 10]]; [[Old Testament/Judges/Judges 5#^verse-14|5:14, 18]]); with Gideon ([[Old Testament/Judges/Judges 6#^verse-35|6:35]]; [[Old Testament/1 Chronicles/1 Chronicles 12#^verse-40|1 Chr. 12:40]]); at Hezekiah's Passover ([[Old Testament/2 Chronicles/2 Chronicles 30#^verse-10|2 Chr. 30:10-18]]; [[Old Testament/Psalms/Psalms 68#^verse-27|Ps. 68:27]]; [[Old Testament/Isaiah/Isaiah 9#^verse-1|Isa. 9:1]]; [[Old Testament/Ezekiel/Ezekiel 48#^verse-26|Ezek. 48:26-27, 33]]).
+
+[[Study Helps/Bible Dictionary/Zeboim, Zeboiim|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Zechariah|Next Entry]]

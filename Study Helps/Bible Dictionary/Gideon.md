@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gibeon, Gibeonites|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gier eagle|Next Entry]]
+
+ Hewer down (of men), warrior. The hero who delivered Israel from oppression by the Midianites ([[Old Testament/Judges/Judges 6#^verse-11|Judg. 6:11-8:35]]). He lived at Ophrah, a town of Manasseh. His first step was to destroy the altar of Baal and the "grove" his father had made; he received in consequence the name Jerubbaal ([[Old Testament/Judges/Judges 6#^verse-31|Judg. 6:31-32]]). With a small army he defeated the Midianites by means of a stratagem. The tribes then offered him the kingship, which he declined. With the gold captured from the Midianites he made some sort of idol, called an Ephod, and so, perhaps unintentionally, led the people into idolatry. See also [[Old Testament/Isaiah/Isaiah 9#^verse-4|Isa. 9:4]]; [[Old Testament/Isaiah/Isaiah 10#^verse-25|10:25]]; [[New Testament/Hebrews/Hebrews 11#^verse-32|Heb. 11:32]].
+
+[[Study Helps/Bible Dictionary/Gibeon, Gibeonites|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gier eagle|Next Entry]]

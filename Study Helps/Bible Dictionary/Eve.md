@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Evangelist|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Evil-merodach|Next Entry]]
+
+ The name given in [[Old Testament/Genesis/Genesis 2#^verse-21|Gen. 2:21-22]]; [[Old Testament/Genesis/Genesis 3#^verse-20|3:20]] to the first woman; see also [[Old Testament/Genesis/Genesis 3|Gen. 3]]; [[Old Testament/Genesis/Genesis 4#^verse-1|4:1]]; [[New Testament/2 Corinthians/2 Corinthians 11#^verse-3|2 Cor. 11:3]]; [[New Testament/1 Timothy/1 Timothy 2#^verse-13|1 Tim. 2:13]]. The name means "the mother of all living" ([[Pearl of Great Price/Moses/Moses 4#^verse-26|Moses 4:26]]; see also [[Book of Mormon/1 Nephi/1 Nephi 5#^verse-11|1 Ne. 5:11]]). She was the wife of Adam and will share eternal glory with him. Eve's recognition of the necessity of the Fall and the joys of Redemption is recorded in [[Pearl of Great Price/Moses/Moses 5#^verse-11|Moses 5:11]]. Latter-day revelation confirms the biblical account of Eve and gives us an awareness of her nobility.
+
+[[Study Helps/Bible Dictionary/Evangelist|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Evil-merodach|Next Entry]]

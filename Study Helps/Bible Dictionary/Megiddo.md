@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Meet|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Melchizedek|Next Entry]]
+
+ On the southwestern side of the plain of Esdraelon, and on the caravan route from Egypt to Damascus. Frequently mentioned in Israelite history. The scene of Sisera's defeat ([[Old Testament/Judges/Judges 5#^verse-19|Judg. 5:19]]). Fortified by Solomon ([[Old Testament/1 Kings/1 Kings 9#^verse-15|1 Kgs. 9:15]]). The place where Ahaziah died of his wounds ([[Old Testament/2 Kings/2 Kings 9#^verse-27|2 Kgs. 9:27]]). Also the scene of the tragic defeat and death of King Josiah ([[Old Testament/2 Kings/2 Kings 23#^verse-29|23:29-30]]; [[Old Testament/2 Chronicles/2 Chronicles 35#^verse-22|2 Chr. 35:22]]). In [[Old Testament/Zechariah/Zechariah 12#^verse-11|Zech. 12:11]] the place is called "the valley of Megiddon." See also [[Study Helps/Bible Dictionary/Armageddon|Armageddon]]; [[Study Helps/Bible Dictionary/Esdraelon|Esdraelon]].
+
+[[Study Helps/Bible Dictionary/Meet|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Melchizedek|Next Entry]]

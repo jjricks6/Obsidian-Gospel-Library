@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hittites|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Holiness|Next Entry]]
+
+ A Canaanitish race ([[Old Testament/Genesis/Genesis 10#^verse-17|Gen. 10:17]]; [[Old Testament/Genesis/Genesis 34#^verse-2|34:2]]; [[Old Testament/Exodus/Exodus 3#^verse-8|Ex. 3:8, 17]]; [[Old Testament/Exodus/Exodus 13#^verse-5|13:5]]; [[Old Testament/Joshua/Joshua 9#^verse-7|Josh. 9:7]]; [[Old Testament/Joshua/Joshua 11#^verse-19|11:19]]). A colony of Hivites, settled in Gibeon, made a treaty with Joshua, having deceived him by a stratagem; but the main body appear to have lived in northern Palestine ([[Old Testament/Joshua/Joshua 11#^verse-3|Josh. 11:3]]; [[Old Testament/Judges/Judges 3#^verse-3|Judg. 3:3]]; [[Old Testament/2 Samuel/2 Samuel 24#^verse-7|2 Sam. 24:7]]).
+
+[[Study Helps/Bible Dictionary/Hittites|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Holiness|Next Entry]]

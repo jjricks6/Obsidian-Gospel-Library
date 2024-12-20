@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hiram|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hivites|Next Entry]]
+
+ The ancient people descended from Heth ([[Old Testament/Genesis/Genesis 10#^verse-15|Gen. 10:15]]). They were a branch of the Canaanites, and in the Bible the name denotes all the Canaanite (as distinguished from the Aramean or Syrian) nations that lived north of Palestine from the Orontes to the Euphrates ([[Old Testament/1 Kings/1 Kings 10#^verse-29|1 Kgs. 10:29]]; [[Old Testament/2 Kings/2 Kings 7#^verse-6|2 Kgs. 7:6]]). Their empire extended to the extreme northwest of Asia Minor, and they were strong enough to contend on equal terms with the kings of Egypt and Assyria. Their love of literature may be traced in the name of the Hittite Kirjath-Sepher ("city of books"); their art is evident by the curious sculptures found at Carchemish, one of their capitals, and elsewhere.
+
+[[Study Helps/Bible Dictionary/Hiram|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hivites|Next Entry]]

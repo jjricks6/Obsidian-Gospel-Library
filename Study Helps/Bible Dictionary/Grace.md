@@ -1,0 +1,9 @@
+[[Study Helps/Bible Dictionary/Gozan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Great Sea|Next Entry]]
+
+ A word that occurs frequently in the New Testament, especially in the writings of Paul. The main idea of the word is divine means of help or strength, given through the bounteous mercy and love of Jesus Christ.
+
+ It is through the grace of the Lord Jesus, made possible by His atoning sacrifice, that mankind will be raised in immortality, every person receiving his body from the grave in a condition of everlasting life. It is likewise through the grace of the Lord that individuals, through faith in the Atonement of Jesus Christ and repentance of their sins, receive strength and assistance to do good works that they otherwise would not be able to maintain if left to their own means. This grace is an enabling power that allows men and women to lay hold on eternal life and exaltation after they have expended their own best efforts.
+
+ Divine grace is needed by every soul in consequence of the Fall of Adam and also because of man's weaknesses and shortcomings. However, grace cannot suffice without total effort on the part of the recipient. Hence the explanation, "It is by grace that we are saved, after all we can do" ([[Book of Mormon/2 Nephi/2 Nephi 25#^verse-23|2 Ne. 25:23]]). It is truly the grace of Jesus Christ that makes salvation possible. This principle is expressed in Jesus' parable of the vine and the branches ([[New Testament/John/John 15#^verse-1|John 15:1-11]]). See also [[New Testament/John/John 1#^verse-12|John 1:12-17]]; [[New Testament/Ephesians/Ephesians 2#^verse-8|Eph. 2:8-9]]; [[New Testament/Philippians/Philippians 4#^verse-13|Philip. 4:13]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 93#^verse-11|D&C 93:11-14]].
+
+[[Study Helps/Bible Dictionary/Gozan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Great Sea|Next Entry]]

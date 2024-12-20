@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Hope|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Hosea|Next Entry]]
+
+ A word from Hebrew that means "please save us" and is used in praise and supplication.
+
+ At the Feast of Tabernacles, which celebrated the Lord's deliverance of Israel into the promised land, people chanted the words of [[Old Testament/Psalms/Psalms 118|Psalm 118]] and waved palm branches. At the Lord's triumphal entry into Jerusalem, the multitudes cried "Hosanna" and spread palm branches for Jesus to ride upon, thus demonstrating their understanding that Jesus was the same Lord who had delivered Israel anciently ([[Old Testament/Psalms/Psalms 118#^verse-25|Ps. 118:25-26]]; [[New Testament/Matthew/Matthew 21#^verse-9|Matt. 21:9, 15]]; [[New Testament/Mark/Mark 11#^verse-9|Mark 11:9-10]]; [[New Testament/John/John 12#^verse-13|John 12:13]]). These people recognized Christ as the long-awaited Messiah. The word Hosanna has become a celebration of the Messiah in all ages ([[Book of Mormon/1 Nephi/1 Nephi 11#^verse-6|1 Ne. 11:6]]; [[Book of Mormon/3 Nephi/3 Nephi 11#^verse-14|3 Ne. 11:14-17]]). The hosanna shout was included in the dedication of the Kirtland Temple ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 109#^verse-79|D&C 109:79]]) and is now a part of the dedication of modern temples.
+
+[[Study Helps/Guide to the Scriptures/Hope|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Hosea|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Balaam|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Baptism|Next Entry]]
+
+ An aromatic gum or spice used for healing wounds ([[Old Testament/Genesis/Genesis 43#^verse-11|Gen. 43:11]]; [[Old Testament/Jeremiah/Jeremiah 8#^verse-22|Jer. 8:22]]; [[Old Testament/Jeremiah/Jeremiah 46#^verse-11|46:11]]; [[Old Testament/Jeremiah/Jeremiah 51#^verse-8|51:8]]). A bush producing the resin from which the balm was made grew so plentifully in Gilead in Old Testament times that the balm came to be known as the "balm of Gilead" and was exported to Tyre and Egypt ([[Old Testament/Genesis/Genesis 37#^verse-25|Gen. 37:25]]; [[Old Testament/Ezekiel/Ezekiel 27#^verse-17|Ezek. 27:17]]).
+
+[[Study Helps/Bible Dictionary/Balaam|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Baptism|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Appii Forum, or Market of Appius|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ar|Next Entry]]
+
+ A Jew, native of Pontus, settled in Rome as a tentmaker, married to Priscilla or Prisca, expelled from Rome by decree of Claudius, settled in Corinth where Paul met them, and then moved to Ephesus ([[New Testament/Acts/Acts 18#^verse-2|Acts 18:2-3, 18]]). At Ephesus Aquila and Priscilla instructed Apollos in the faith ([[New Testament/Acts/Acts 18#^verse-26|Acts 18:26]]), and their house seems to have been a center of Church activity ([[New Testament/1 Corinthians/1 Corinthians 16#^verse-19|1 Cor. 16:19]]). From the references to them in [[New Testament/Romans/Romans 16#^verse-3|Rom. 16:3]] it appears that they returned to Rome, but later on we find them again at Ephesus ([[New Testament/2 Timothy/2 Timothy 4#^verse-19|2 Tim. 4:19]]).
+
+[[Study Helps/Bible Dictionary/Appii Forum, or Market of Appius|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ar|Next Entry]]

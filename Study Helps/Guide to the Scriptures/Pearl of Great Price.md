@@ -1,0 +1,9 @@
+[[Study Helps/Guide to the Scriptures/Peacemaker|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Peleg|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Canon|Canon]]; [[Study Helps/Guide to the Scriptures/Scriptures|Scriptures]]; [[Study Helps/Guide to the Scriptures/Smith, Joseph, Jr.|Smith, Joseph, Jr.]]
+
+ The kingdom of God on earth is likened to a "pearl of great price" ([[New Testament/Matthew/Matthew 13#^verse-45|Matt. 13:45-46]]).
+
+ The Pearl of Great Price is also the name given to one of four volumes of scripture called the "standard works" of The Church of Jesus Christ of Latter-day Saints. The first edition of the Pearl of Great Price was published in 1851 and contained some material that is now in the Doctrine and Covenants. Editions published since 1902 contain (1) excerpts from Joseph Smith's translation of [[Old Testament/Genesis/Genesis 1|Genesis]], called the [[Pearl of Great Price/Moses/Moses 1|book of Moses]], and of [[New Testament/Matthew/Matthew 24|Matthew 24]], called [[Pearl of Great Price/Joseph Smith—Matthew|Joseph Smith—Matthew]]; (2) Joseph Smith's translation of some Egyptian papyrus that he obtained in 1835, called the [[Pearl of Great Price/Abraham/Abraham 1|book of Abraham]]; (3) an excerpt from Joseph Smith's history of the Church that he wrote in 1838, called [[Pearl of Great Price/Joseph Smith—History|Joseph Smith—History]]; and (4) the [[Pearl of Great Price/Articles of Faith|Articles of Faith]], thirteen statements of belief and doctrine.
+
+[[Study Helps/Guide to the Scriptures/Peacemaker|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Peleg|Next Entry]]

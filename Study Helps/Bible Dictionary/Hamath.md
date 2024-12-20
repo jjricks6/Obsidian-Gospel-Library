@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Haman|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hananeel|Next Entry]]
+
+ An important city of Syria, in the valley of the Orontes; the "entering in of Hamath" was the northern limit of the Promised Land ([[Old Testament/Numbers/Numbers 34#^verse-8|Num. 34:8]]; [[Old Testament/Joshua/Joshua 13#^verse-5|Josh. 13:5]]). Toi, king of Hamath, was on friendly terms with David ([[Old Testament/2 Samuel/2 Samuel 8#^verse-10|2 Sam. 8:10]]). The city seems to have come under the dominion of Solomon ([[Old Testament/1 Kings/1 Kings 4#^verse-21|1 Kgs. 4:21-24]]; [[Old Testament/2 Chronicles/2 Chronicles 8#^verse-4|2 Chr. 8:4]]). It was afterwards taken by the Assyrians ([[Old Testament/2 Kings/2 Kings 14#^verse-28|2 Kgs. 14:28]]). It is still a town of considerable importance.
+
+[[Study Helps/Bible Dictionary/Haman|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hananeel|Next Entry]]

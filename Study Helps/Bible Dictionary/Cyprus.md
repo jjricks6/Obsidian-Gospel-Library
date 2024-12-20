@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Cutting the flesh|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cyrene|Next Entry]]
+
+ A large island of the eastern Mediterranean, originally known as [[Study Helps/Bible Dictionary/Chittim or Kittim|Chittim]] (see Chittim); the birthplace of Barnabas ([[New Testament/Acts/Acts 4#^verse-36|Acts 4:36]]); one of the places to which Christian converts went during the persecution that followed the death of Stephen ([[New Testament/Acts/Acts 11#^verse-19|Acts 11:19-20]]); visited by Paul and Barnabas ([[New Testament/Acts/Acts 13#^verse-4|Acts 13:4]]; [[New Testament/Acts/Acts 15#^verse-39|15:39]]; [[New Testament/Acts/Acts 21#^verse-3|21:3-16]]; [[New Testament/Acts/Acts 27#^verse-4|27:4]]).
+
+[[Study Helps/Bible Dictionary/Cutting the flesh|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cyrene|Next Entry]]

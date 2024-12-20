@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Mercurius|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Meribah|Next Entry]]
+
+ The golden covering of the Ark of the Covenant in the Holy of Holies. It was the place of the manifestation of God's glory and His meeting place with His people ([[Old Testament/Exodus/Exodus 25#^verse-22|Ex. 25:22]]; [[Old Testament/Leviticus/Leviticus 16#^verse-2|Lev. 16:2]]; [[Old Testament/Numbers/Numbers 7#^verse-89|Num. 7:89]]); and was regarded as the Throne of God ([[Old Testament/Numbers/Numbers 7#^verse-89|Num. 7:89]]; see also [[Old Testament/Exodus/Exodus 30#^verse-6|Ex. 30:6]]; [[Old Testament/1 Samuel/1 Samuel 4#^verse-4|1 Sam. 4:4]]). Here the blood of the sin offering was sprinkled on the Day of Atonement ([[Old Testament/Leviticus/Leviticus 16#^verse-14|Lev. 16:14-15]]). See [[Study Helps/Bible Dictionary/Tabernacle|Tabernacle]].
+
+[[Study Helps/Bible Dictionary/Mercurius|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Meribah|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Sanhedrin|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sarepta|Next Entry]]
+
+ Sarah means "princess." The wife of Abraham. From [[Old Testament/Genesis/Genesis 11#^verse-29|Gen. 11:29-17:15]] the form of the name used is Sarai (which possibly means "contentions," or more probably is another form of Sarah). She was married to Abraham before he left Ur. In her old age she became the mother of Isaac ([[Old Testament/Genesis/Genesis 21#^verse-2|Gen. 21:2]]). She died before her husband and was buried in the cave of Machpelah at Hebron ([[Old Testament/Genesis/Genesis 23#^verse-2|Gen. 23:2]]). See also [[Old Testament/Isaiah/Isaiah 51#^verse-2|Isa. 51:2]]; [[New Testament/Romans/Romans 4#^verse-19|Rom. 4:19]]; [[New Testament/Hebrews/Hebrews 11#^verse-11|Heb. 11:11]]; [[New Testament/1 Peter/1 Peter 3#^verse-6|1 Pet. 3:6]].
+
+[[Study Helps/Bible Dictionary/Sanhedrin|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sarepta|Next Entry]]

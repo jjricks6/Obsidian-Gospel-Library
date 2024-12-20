@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Immortal, Immortality|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Innocence, Innocent|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Account, Accountable, Accountability|Account, Accountable, Accountability]]; [[Study Helps/Guide to the Scriptures/Baptism, Baptize|Baptism, Baptize—Baptism not for infants]]; [[Study Helps/Guide to the Scriptures/Child, Children|Child, Children]]; [[Study Helps/Guide to the Scriptures/Salvation|Salvation—Salvation of children]]
+
+ The unnecessary practice of baptizing babies and children who are under the age of accountability, which is eight years old. The Lord condemns infant baptism ([[Book of Mormon/Moroni/Moroni 8#^verse-10|Moro. 8:10-21]]). Children are born innocent and without sin. Satan has no power to tempt children until they begin to become accountable ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 29#^verse-46|D&C 29:46-47]]) so they have no need to repent or be baptized. Children should be baptized at the age of eight ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 68#^verse-25|D&C 68:25-27]]).
+
+[[Study Helps/Guide to the Scriptures/Immortal, Immortality|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Innocence, Innocent|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Lamp|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Laver|Next Entry]]
+
+ A town in the Roman province of Asia, in the valley of the Lycus, near Colossae and Hierapolis. In [[New Testament/Colossians/Colossians 4#^verse-16|Col. 4:16]] there is a reference to a letter written by Paul to the Church in Laodicea. Other references to Laodicea are found in [[New Testament/Colossians/Colossians 2#^verse-1|Col. 2:1]]; [[New Testament/Colossians/Colossians 4#^verse-13|4:13, 15]]; [[New Testament/Revelation/Revelation 1#^verse-11|Rev. 1:11]]; [[New Testament/Revelation/Revelation 3#^verse-14|3:14]]. This last passage shows that the special danger of the church there was its lukewarmness.
+
+[[Study Helps/Bible Dictionary/Lamp|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Laver|Next Entry]]

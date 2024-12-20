@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Bethany|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Bethlehem|Next Entry]]
+
+ In Hebrew, means "house of God" and is one of the most sacred spots in Israel. It is located about ten miles (sixteen kilometers) north of Jerusalem. Here Abraham built his altar at the time of his first arrival in Canaan ([[Old Testament/Genesis/Genesis 12#^verse-8|Gen. 12:8]]; [[Old Testament/Genesis/Genesis 13#^verse-3|13:3]]). Here Jacob saw in vision a ladder reaching up into heaven ([[Old Testament/Genesis/Genesis 28#^verse-10|Gen. 28:10-19]]). It was also a holy place in the days of Samuel ([[Old Testament/1 Samuel/1 Samuel 7#^verse-16|1 Sam. 7:16]]; [[Old Testament/1 Samuel/1 Samuel 10#^verse-3|10:3]]).
+
+[[Study Helps/Guide to the Scriptures/Bethany|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Bethlehem|Next Entry]]

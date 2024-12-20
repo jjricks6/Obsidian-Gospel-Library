@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Jannes and Jambres|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jasher, book of|Next Entry]]
+
+ Eldest son of Noah ([[Pearl of Great Price/Moses/Moses 8#^verse-12|Moses 8:12]]; see also [[Old Testament/Genesis/Genesis 5#^verse-32|Gen. 5:32]]; [[Old Testament/Genesis/Genesis 6#^verse-10|6:10]]; [[Old Testament/Genesis/Genesis 7#^verse-13|7:13]]; [[Old Testament/Genesis/Genesis 9#^verse-18|9:18, 23]]); his blessing ([[Old Testament/Genesis/Genesis 9#^verse-27|Gen. 9:27]]). His descendants were dispersed over the European coasts of the Mediterranean and the districts adjoining the Black and Caspian seas ([[Old Testament/Genesis/Genesis 10#^verse-1|Gen. 10:1-5, 21]]; [[Old Testament/1 Chronicles/1 Chronicles 1#^verse-4|1 Chr. 1:4-5]]), forming what is now called the Indo-European family of nations.
+
+[[Study Helps/Bible Dictionary/Jannes and Jambres|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jasher, book of|Next Entry]]

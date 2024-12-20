@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Brazen serpent|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Brethren of the Lord|Next Entry]]
+
+ (1) The front part of a soldier's dress, worn for protection. In this sense Isaiah and Paul spoke of a "breastplate of righteousness," which all saints should possess, protecting the vital organs against the evil things of life ([[Old Testament/Isaiah/Isaiah 59#^verse-17|Isa. 59:17]]; [[New Testament/Ephesians/Ephesians 6#^verse-14|Eph. 6:14]]).
+
+ (2) The high priest in the law of Moses wore a breastplate as part of his sacred attire. This was called the "breastplate of judgment" ([[Old Testament/Exodus/Exodus 28#^verse-13|Ex. 28:13-30]]; [[Old Testament/Exodus/Exodus 39#^verse-8|39:8-21]]). It was made of linen, very colorfully arranged, bearing 12 precious stones and the Urim and Thummim. Other references to a breastplate are found in [[New Testament/1 Thessalonians/1 Thessalonians 5#^verse-8|1 Thes. 5:8]]; [[New Testament/Revelation/Revelation 9#^verse-9|Rev. 9:9]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 17#^verse-1|D&C 17:1]]; [[Pearl of Great Price/Joseph Smith—History#^verse-35|JS—H 1:35, 42, 52]].
+
+[[Study Helps/Bible Dictionary/Brazen serpent|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Brethren of the Lord|Next Entry]]

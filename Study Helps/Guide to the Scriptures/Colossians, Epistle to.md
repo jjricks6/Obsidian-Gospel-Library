@@ -1,0 +1,9 @@
+[[Study Helps/Guide to the Scriptures/Clean and Unclean|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Combinations|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Paul|Paul]]; [[Study Helps/Guide to the Scriptures/Pauline Epistles|Pauline Epistles]]
+
+ A book in the New Testament. It was originally a letter that the Apostle Paul wrote to the Colossians after he was visited by Epaphras, the evangelist of the Church in Colosse ([[New Testament/Colossians/Colossians 1#^verse-7|Col. 1:7-8]]). Epaphras told Paul that the Colossians were falling into serious error—they thought they were better than other people because they carefully observed certain external ordinances ([[New Testament/Colossians/Colossians 2#^verse-16|Col. 2:16]]), denied themselves certain physical wants, and worshiped angels ([[New Testament/Colossians/Colossians 2#^verse-18|Col. 2:18]]). These practices made the Colossians feel they were being sanctified. They also felt they understood the mysteries of the universe better than other Church members. In his letter, Paul corrected them by teaching that redemption comes only through Christ and that we are to be wise and serve Him.
+
+ [[New Testament/Colossians/Colossians 1|Chapter 1]] is Paul's greeting to the Colossians. [[New Testament/Colossians/Colossians 2|Chapters 2-3]] are doctrinal and contain statements on Christ as the Redeemer, the danger of false worship, and the importance of the Resurrection. [[New Testament/Colossians/Colossians 4|Chapter 4]] teaches that Saints are to be wise in all things.
+
+[[Study Helps/Guide to the Scriptures/Clean and Unclean|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Combinations|Next Entry]]

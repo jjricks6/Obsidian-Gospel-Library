@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Cedron|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Centurion|Next Entry]]
+
+ A metal vessel made to receive burning charcoal from the altar, and in which incense was sprinkled by a priest ([[Old Testament/Leviticus/Leviticus 16#^verse-12|Lev. 16:12]]; [[Old Testament/Numbers/Numbers 4#^verse-14|Num. 4:14]]; [[Old Testament/1 Kings/1 Kings 7#^verse-50|1 Kgs. 7:50]]; [[Old Testament/2 Chronicles/2 Chronicles 26#^verse-18|2 Chr. 26:18-19]]; [[Old Testament/Ezekiel/Ezekiel 8#^verse-11|Ezek. 8:11]]; [[New Testament/Luke/Luke 1#^verse-9|Luke 1:9]]; [[New Testament/Revelation/Revelation 8#^verse-3|Rev. 8:3-4]]). See also the account of Korah's rebellion, [[Old Testament/Numbers/Numbers 16|Num. 16]].
+
+[[Study Helps/Bible Dictionary/Cedron|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Centurion|Next Entry]]

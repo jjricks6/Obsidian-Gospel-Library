@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Dragon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Dromedary|Next Entry]]
+
+ One of the means by which God communicates with men ([[Old Testament/Genesis/Genesis 15#^verse-12|Gen. 15:12]]; [[Old Testament/Genesis/Genesis 20#^verse-3|20:3-7]]; [[Old Testament/Genesis/Genesis 28#^verse-12|28:12-15]]; [[Old Testament/Genesis/Genesis 31#^verse-24|31:24]]; [[Old Testament/Genesis/Genesis 37#^verse-5|37:5-10]]; [[Old Testament/Genesis/Genesis 40#^verse-5|40:5]]; [[Old Testament/Genesis/Genesis 41#^verse-1|41:1-28]]; [[Old Testament/Judges/Judges 7#^verse-13|Judg. 7:13]]; [[Old Testament/1 Kings/1 Kings 3#^verse-5|1 Kgs. 3:5]]; [[Old Testament/Daniel/Daniel 2#^verse-1|Dan. 2:1]]; [[Old Testament/Daniel/Daniel 4|4]]; [[New Testament/Matthew/Matthew 1#^verse-20|Matt. 1:20]]; [[New Testament/Matthew/Matthew 2#^verse-12|2:12, 13, 20]]; [[New Testament/Matthew/Matthew 27#^verse-19|27:19]]; [[Book of Mormon/1 Nephi/1 Nephi 3#^verse-1|1 Ne. 3:1-2]]; [[Book of Mormon/1 Nephi/1 Nephi 8#^verse-2|8:2]]).
+
+[[Study Helps/Bible Dictionary/Dragon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Dromedary|Next Entry]]

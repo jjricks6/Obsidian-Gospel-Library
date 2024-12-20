@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Mary|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Masoretic text|Next Entry]]
+
+ Mary of Magdala, probably the place of that name on the western shore of the Sea of Galilee. Out of her went seven devils ([[New Testament/Luke/Luke 8#^verse-2|Luke 8:2]]). She was near the cross ([[New Testament/Matthew/Matthew 27#^verse-56|Matt. 27:56]]; [[New Testament/Mark/Mark 15#^verse-40|Mark 15:40]]; [[New Testament/John/John 19#^verse-25|John 19:25]]); at the burial ([[New Testament/Matthew/Matthew 27#^verse-61|Matt. 27:61]]; [[New Testament/Mark/Mark 15#^verse-47|Mark 15:47]]); at the tomb in the morning ([[New Testament/Matthew/Matthew 28#^verse-1|Matt. 28:1]]; [[New Testament/Mark/Mark 16#^verse-1|Mark 16:1]]; [[New Testament/Luke/Luke 24#^verse-10|Luke 24:10]]; [[New Testament/John/John 20#^verse-1|John 20:1, 11]]). Jesus appeared to her ([[New Testament/Mark/Mark 16#^verse-9|Mark 16:9]]; [[New Testament/John/John 20#^verse-14|John 20:14-18]]).
+
+[[Study Helps/Bible Dictionary/Mary|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Masoretic text|Next Entry]]

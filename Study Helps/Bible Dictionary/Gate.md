@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Games|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gath|Next Entry]]
+
+ The gate of a city was often a place for public business ([[Old Testament/Deuteronomy/Deuteronomy 21#^verse-19|Deut. 21:19]]; [[Old Testament/Ruth/Ruth 4#^verse-1|Ruth 4:1-11]]; [[Old Testament/2 Samuel/2 Samuel 3#^verse-27|2 Sam. 3:27]]; [[Old Testament/2 Samuel/2 Samuel 15#^verse-2|15:2]]; [[Old Testament/Job/Job 31#^verse-21|Job 31:21]]; [[Old Testament/Psalms/Psalms 69#^verse-12|Ps. 69:12]]; [[Old Testament/Psalms/Psalms 127#^verse-5|127:5]]; [[Old Testament/Isaiah/Isaiah 29#^verse-21|Isa. 29:21]]; [[Old Testament/Jeremiah/Jeremiah 38#^verse-7|Jer. 38:7]]; [[Old Testament/Lamentations/Lamentations 5#^verse-14|Lam. 5:14]]; [[Old Testament/Amos/Amos 5#^verse-10|Amos 5:10-15]]). In heathen towns it was sometimes a place for sacrifice ([[New Testament/Acts/Acts 14#^verse-13|Acts 14:13]]).
+
+[[Study Helps/Bible Dictionary/Games|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gath|Next Entry]]

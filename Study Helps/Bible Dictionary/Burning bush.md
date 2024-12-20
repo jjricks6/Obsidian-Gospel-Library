@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Burial|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Burnt offering|Next Entry]]
+
+ A bush in which the Lord appeared to Moses when He gave him his commission to bring Israel out of Egypt ([[Old Testament/Exodus/Exodus 3#^verse-2|Ex. 3:2-4]]). Although the bush burned, it was not consumed, and this circumstance caught Moses' attention. The event was referred to by Jesus in speaking to the Sadducees ([[New Testament/Mark/Mark 12#^verse-26|Mark 12:26]]; [[New Testament/Luke/Luke 20#^verse-37|Luke 20:37]]). Stephen also makes mention of it ([[New Testament/Acts/Acts 7#^verse-30|Acts 7:30]]). In latter-day revelation the experience is verified in [[Pearl of Great Price/Moses/Moses 1#^verse-17|Moses 1:17]].
+
+[[Study Helps/Bible Dictionary/Burial|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Burnt offering|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Feasts|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Felloes|Next Entry]]
+
+ Procurator of Judea at the time of Paul's arrest by the Roman military authorities ([[New Testament/Acts/Acts 23#^verse-24|Acts 23:24]]). He investigated the case and heard Paul speak in his own defense ([[New Testament/Acts/Acts 24|Acts 24]]) but put off giving any decision, his reason being that he had "more exact knowledge concerning the Way": he knew more about the case and about Christianity than the prosecutors had told him. He hoped Paul would have offered him some bribe; but none being offered on his recall from Judea, he left the Apostle still in prison. See [[Study Helps/Bible Dictionary/Drusilla|Drusilla]]; see also [[Study Helps/Bible Chronology/Introduction|Bible Chronology]] in the appendix.
+
+[[Study Helps/Bible Dictionary/Feasts|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Felloes|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Ehud|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/El|Next Entry]]
+
+ The most northerly of the Philistine towns, nine miles from the sea, at first allotted to Judah ([[Old Testament/Joshua/Joshua 15#^verse-45|Josh. 15:45-46]]), then to Dan ([[Old Testament/Joshua/Joshua 19#^verse-43|19:43]]). Judah held it for a time ([[Old Testament/Judges/Judges 1#^verse-18|Judg. 1:18]]), but the Philistines recovered it ([[Old Testament/1 Samuel/1 Samuel 5#^verse-10|1 Sam. 5:10]]; see also [[Old Testament/1 Samuel/1 Samuel 6#^verse-16|6:16]]; [[Old Testament/1 Samuel/1 Samuel 7#^verse-14|7:14]]; [[Old Testament/1 Samuel/1 Samuel 17#^verse-52|17:52]]; [[Old Testament/2 Kings/2 Kings 1#^verse-2|2 Kgs. 1:2-16]]; [[Old Testament/Jeremiah/Jeremiah 25#^verse-20|Jer. 25:20]]; [[Old Testament/Zechariah/Zechariah 9#^verse-5|Zech. 9:5, 7]]).
+
+[[Study Helps/Bible Dictionary/Ehud|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/El|Next Entry]]

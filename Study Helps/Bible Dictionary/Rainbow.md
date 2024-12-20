@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Rain|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ramah|Next Entry]]
+
+ An outward token of God's covenant with Noah ([[Old Testament/Genesis/Genesis 9#^verse-13|Gen. 9:13]]; see also [[Old Testament/Ezekiel/Ezekiel 1#^verse-28|Ezek. 1:28]]; [[New Testament/Revelation/Revelation 4#^verse-3|Rev. 4:3]]; [[New Testament/Revelation/Revelation 10#^verse-1|10:1]]). The rainbow no doubt existed before the Flood, but with Noah the rainbow took on a new significance as the token of the covenant. JST Gen. 9:17-25 enlarges the terms of the covenant to include not only that the earth will never again be covered with a flood of water, but also that the Zion of Enoch will return and the Lord will come again to dwell on the earth (see [[Old Testament/Genesis/Genesis 9#^verse-11|Gen. 9:11 note c]], [[Old Testament/Genesis/Genesis 9#^verse-15|15 note b]]; [[Study Helps/Joseph Smith Translation Appendix/JST, Genesis/JST, Genesis 9#^verse-21|JST Gen. 9:21-25 [Appendix]]]).
+
+[[Study Helps/Bible Dictionary/Rain|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ramah|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Cain|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Call, Called of God, Calling|Next Entry]]
+
+ One of those sent by Moses to search the land of Canaan in the second year after the Exodus. He and Joshua alone brought back a true report of the land ([[Old Testament/Numbers/Numbers 13#^verse-6|Num. 13:6, 30]]; [[Old Testament/Numbers/Numbers 14#^verse-6|14:6-38]]). They alone of all who had left Egypt survived the forty years in the wilderness ([[Old Testament/Numbers/Numbers 26#^verse-65|Num. 26:65]]; [[Old Testament/Numbers/Numbers 32#^verse-12|32:12]]; [[Old Testament/Deuteronomy/Deuteronomy 1#^verse-36|Deut. 1:36]]) and entered Canaan ([[Old Testament/Joshua/Joshua 14#^verse-6|Josh. 14:6-14]]; [[Old Testament/Joshua/Joshua 15#^verse-13|15:13-19]]).
+
+[[Study Helps/Guide to the Scriptures/Cain|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Call, Called of God, Calling|Next Entry]]

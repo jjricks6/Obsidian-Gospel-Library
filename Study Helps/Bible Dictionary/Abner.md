@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Abinadab|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Abomination|Next Entry]]
+
+ Father of Ner, or light. Captain of Saul's army ([[Old Testament/1 Samuel/1 Samuel 14#^verse-50|1 Sam. 14:50]]; [[Old Testament/1 Samuel/1 Samuel 17#^verse-55|17:55]]; [[Old Testament/1 Samuel/1 Samuel 20#^verse-25|20:25]]; [[Old Testament/1 Samuel/1 Samuel 26#^verse-5|26:5-15]]); makes Ishbosheth king ([[Old Testament/2 Samuel/2 Samuel 2#^verse-8|2 Sam. 2:8-9]]); defeated by Joab, slays Asahel ([[Old Testament/2 Samuel/2 Samuel 2#^verse-12|2:12-32]]); revolts to David ([[Old Testament/2 Samuel/2 Samuel 3#^verse-6|3:6-21]]); killed by Joab ([[Old Testament/2 Samuel/2 Samuel 3#^verse-27|3:27]]); David's lament over Abner ([[Old Testament/2 Samuel/2 Samuel 3#^verse-33|3:33]]; [[Old Testament/2 Samuel/2 Samuel 4#^verse-1|4:1, 12]]; [[Old Testament/1 Kings/1 Kings 2#^verse-5|1 Kgs. 2:5, 32]]; [[Old Testament/1 Chronicles/1 Chronicles 26#^verse-28|1 Chr. 26:28]]; [[Old Testament/1 Chronicles/1 Chronicles 27#^verse-21|27:21]]).
+
+[[Study Helps/Bible Dictionary/Abinadab|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Abomination|Next Entry]]

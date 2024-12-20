@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Peculiar|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Peleg|Next Entry]]
+
+ Open-eyed. Son of Remaliah; kills his master Pekahiah and becomes king of Israel ([[Old Testament/2 Kings/2 Kings 15#^verse-25|2 Kgs. 15:25-32]]; [[Old Testament/2 Kings/2 Kings 16#^verse-1|16:1]]); invades Judah with Rezin ([[Old Testament/2 Kings/2 Kings 15#^verse-37|2 Kgs. 15:37]]; [[Old Testament/2 Kings/2 Kings 16#^verse-5|16:5]]; [[Old Testament/2 Chronicles/2 Chronicles 28#^verse-6|2 Chr. 28:6]]; [[Old Testament/Isaiah/Isaiah 7#^verse-1|Isa. 7:1]]); Israel invaded by Tiglath-pileser; Pekah killed by Hoshea ([[Old Testament/2 Kings/2 Kings 15#^verse-29|2 Kgs. 15:29-30]]). There is much difficulty in deciding the chronology of Pekah's reign. See [[Study Helps/Bible Chronology/Introduction|Bible Chronology]] in the appendix.
+
+[[Study Helps/Bible Dictionary/Peculiar|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Peleg|Next Entry]]

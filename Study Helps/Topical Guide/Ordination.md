@@ -1,0 +1,5 @@
+[[Study Helps/Topical Guide/Ordinance|Previous Entry]]  ||  [[Study Helps/Topical Guide/Organ|Next Entry]]
+
+ See [[Study Helps/Topical Guide/Authority|Authority]]; [[Study Helps/Topical Guide/Called of God|Called of God]]; [[Study Helps/Topical Guide/Church Organization|Church Organization]]; [[Study Helps/Topical Guide/Hands, Laying on of|Hands, Laying on of]]; [[Study Helps/Topical Guide/Ordinance|Ordinance]]; [[Study Helps/Topical Guide/Priesthood|Priesthood]]; [[Study Helps/Topical Guide/Priesthood, Authority|Priesthood, Authority]]; [[Study Helps/Topical Guide/Priesthood, Ordination|Priesthood, Ordination]]; [[Study Helps/Topical Guide/Priesthood, Qualifying for|Priesthood, Qualifying for]]
+
+[[Study Helps/Topical Guide/Ordinance|Previous Entry]]  ||  [[Study Helps/Topical Guide/Organ|Next Entry]]

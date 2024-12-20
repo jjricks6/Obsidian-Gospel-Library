@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Messiah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Micah|Next Entry]]
+
+ Son of Enoch and the longest lived of the patriarchs ([[Old Testament/Genesis/Genesis 5#^verse-21|Gen. 5:21-27]]; [[New Testament/Luke/Luke 3#^verse-37|Luke 3:37]]). Some details of his life and ministry are given in latter-day revelation, from which we learn that he was a righteous man, a prophet, and an astronomer and was left on the earth when the city of Enoch was taken to provide a posterity through which Noah would come. See [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 107#^verse-50|D&C 107:50, 52-53]]; [[Pearl of Great Price/Moses/Moses 8#^verse-1|Moses 8:1-3]].
+
+[[Study Helps/Bible Dictionary/Messiah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Micah|Next Entry]]

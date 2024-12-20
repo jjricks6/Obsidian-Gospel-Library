@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Lost books|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Lots, casting of|Next Entry]]
+
+ A covering. Son of Haran, Abraham's brother ([[Old Testament/Genesis/Genesis 11#^verse-27|Gen. 11:27, 31]]; [[Old Testament/Genesis/Genesis 12#^verse-4|12:4-5]]; [[Old Testament/Genesis/Genesis 13#^verse-1|13:1, 5]]). He went with Abraham to Canaan; his life after his separation from Abraham is described in [[Old Testament/Genesis/Genesis 13|Gen. 13-14]]; [[Old Testament/Genesis/Genesis 19|19]]. He was the ancestor of Moab and Ammon ([[Old Testament/Genesis/Genesis 19#^verse-37|Gen. 19:37-38]]; [[Old Testament/Deuteronomy/Deuteronomy 2#^verse-9|Deut. 2:9, 19]]). There are New Testament references to him in [[New Testament/Luke/Luke 17#^verse-29|Luke 17:29]]; [[New Testament/2 Peter/2 Peter 2#^verse-7|2 Pet. 2:7]]. His wife's fate is also referred to in [[Old Testament/Genesis/Genesis 19#^verse-26|Gen. 19:26]]; [[New Testament/Luke/Luke 17#^verse-32|Luke 17:32]].
+
+[[Study Helps/Bible Dictionary/Lost books|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Lots, casting of|Next Entry]]

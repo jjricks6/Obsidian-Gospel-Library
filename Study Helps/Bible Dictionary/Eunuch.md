@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Eunice|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Euphrates|Next Entry]]
+
+ A class of emasculated men attached to the courts of eastern rulers. They were employed to watch over the harems and also were often given positions as trusted officials. Eunuchs are mentioned in [[Old Testament/2 Kings/2 Kings 20#^verse-18|2 Kgs. 20:18]]; [[Old Testament/Isaiah/Isaiah 39#^verse-7|Isa. 39:7]]; [[Old Testament/Isaiah/Isaiah 56#^verse-4|56:4]]; [[Old Testament/Jeremiah/Jeremiah 38#^verse-7|Jer. 38:7-13]]; [[Old Testament/Jeremiah/Jeremiah 41#^verse-16|41:16]]; [[New Testament/Matthew/Matthew 19#^verse-12|Matt. 19:12]]; [[New Testament/Acts/Acts 8#^verse-27|Acts 8:27-38]].
+
+[[Study Helps/Bible Dictionary/Eunice|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Euphrates|Next Entry]]

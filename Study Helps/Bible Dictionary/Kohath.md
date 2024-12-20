@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Knowledge|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Korah|Next Entry]]
+
+ Second of the three sons of Levi, and grandfather of Moses and Aaron ([[Old Testament/Genesis/Genesis 46#^verse-11|Gen. 46:11]]; [[Old Testament/Exodus/Exodus 6#^verse-16|Ex. 6:16, 18]]). From him all priests were descended through Aaron, while those of his descendants who were not priests were known as Kohathites and were the Levites of highest rank ([[Old Testament/Numbers/Numbers 3#^verse-27|Num. 3:27, 30]]; [[Old Testament/Numbers/Numbers 4#^verse-18|4:18, 34, 37]]; [[Old Testament/Numbers/Numbers 10#^verse-21|10:21]]; [[Old Testament/1 Chronicles/1 Chronicles 6#^verse-61|1 Chr. 6:61-70]]; [[Old Testament/1 Chronicles/1 Chronicles 15#^verse-5|15:5]]).
+
+[[Study Helps/Bible Dictionary/Knowledge|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Korah|Next Entry]]

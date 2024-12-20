@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Barabbas|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Bartholomew|Next Entry]]
+
+ Name given to Joseph (also called Joses), a Levite of Cyprus, who sold his land and gave the proceeds to the Apostles ([[New Testament/Acts/Acts 4#^verse-36|Acts 4:36-37]]). Though not one of the original Twelve Apostles, he did become an Apostle ([[New Testament/Acts/Acts 14#^verse-4|Acts 14:4, 14]]) and served on several missionary journeys ([[New Testament/Acts/Acts 11#^verse-22|Acts 11:22-30]]; [[New Testament/Acts/Acts 12#^verse-25|12:25]]; [[New Testament/Acts/Acts 13|13-15]]; [[New Testament/1 Corinthians/1 Corinthians 9#^verse-6|1 Cor. 9:6]]; [[New Testament/Galations/Galations 2#^verse-1|Gal. 2:1, 9]]; [[New Testament/Colossians/Colossians 4#^verse-10|Col. 4:10]]).
+
+[[Study Helps/Guide to the Scriptures/Barabbas|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Bartholomew|Next Entry]]

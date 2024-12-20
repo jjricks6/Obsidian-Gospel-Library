@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Authorized Version|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Azekah|Next Entry]]
+
+ A king of Judah, also called Uzziah ([[Old Testament/2 Kings/2 Kings 14#^verse-21|2 Kgs. 14:21]]; [[Old Testament/2 Kings/2 Kings 15#^verse-1|15:1, 7, 27]]; [[Old Testament/1 Chronicles/1 Chronicles 3#^verse-12|1 Chr. 3:12]]; [[Old Testament/2 Chronicles/2 Chronicles 26|2 Chr. 26]]). Also many other men, as in [[Old Testament/2 Chronicles/2 Chronicles 15#^verse-1|2 Chr. 15:1]]; [[Old Testament/2 Chronicles/2 Chronicles 26#^verse-16|26:16-21]]; [[Old Testament/Jeremiah/Jeremiah 43#^verse-2|Jer. 43:2]]; [[Old Testament/Daniel/Daniel 1#^verse-6|Dan. 1:6-7]]; [[Old Testament/Daniel/Daniel 2#^verse-17|2:17]].
+
+[[Study Helps/Bible Dictionary/Authorized Version|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Azekah|Next Entry]]

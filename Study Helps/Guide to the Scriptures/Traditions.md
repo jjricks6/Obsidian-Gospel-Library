@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Tongues, Gift of|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Transfiguration|Next Entry]]
+
+ Beliefs and practices that are passed on from one generation to another ([[New Testament/2 Thessalonians/2 Thessalonians 2#^verse-15|2 Thes. 2:15]]). In the scriptures, the Lord consistently warns the righteous to avoid the evil traditions of men ([[Old Testament/Leviticus/Leviticus 18#^verse-30|Lev. 18:30]]; [[New Testament/Mark/Mark 7#^verse-6|Mark 7:6-8]]; [[Book of Mormon/Mosiah/Mosiah 1#^verse-5|Mosiah 1:5]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 93#^verse-39|D&C 93:39-40]]).
+
+[[Study Helps/Guide to the Scriptures/Tongues, Gift of|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Transfiguration|Next Entry]]

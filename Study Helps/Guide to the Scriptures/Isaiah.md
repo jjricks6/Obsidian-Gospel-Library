@@ -1,0 +1,13 @@
+[[Study Helps/Guide to the Scriptures/Isaac|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Ishmael, Father-in-Law of Nephi|Next Entry]]
+
+ A prophet of the Old Testament who prophesied from 740-701 B.C. As King Hezekiah's chief adviser, Isaiah had great religious and political influence.
+
+ Jesus quoted Isaiah more frequently than He quoted any other prophet. Isaiah is also quoted frequently by Peter, John, and Paul in the New Testament. The Book of Mormon and the Doctrine and Covenants contain more quotes from Isaiah than from any other prophet and provide much help in interpreting Isaiah. Nephi taught his people from the writings of Isaiah ([[Book of Mormon/2 Nephi/2 Nephi 12|2 Ne. 12-24]]; [[Old Testament/Isaiah/Isaiah 2|Isa. 2-14]]). The Lord told the Nephites that "great are the words of Isaiah" and that all things Isaiah prophesied would be fulfilled ([[Book of Mormon/3 Nephi/3 Nephi 23#^verse-1|3 Ne. 23:1-3]]).
+
+## The book of Isaiah
+
+ A book in the Old Testament. Many of Isaiah's prophecies deal with the coming of the Redeemer, both in His earthly ministry ([[Old Testament/Isaiah/Isaiah 9#^verse-6|Isa. 9:6]]) and as the Great King at the last day ([[Old Testament/Isaiah/Isaiah 63|Isa. 63]]). He also prophesied much about Israel's future.
+
+ [[Old Testament/Isaiah/Isaiah 1|Chapter 1]] is a prologue to the rest of the book. [[Old Testament/Isaiah/Isaiah 7#^verse-14|Isaiah 7:14]]; [[Old Testament/Isaiah/Isaiah 9#^verse-6|9:6-7]]; [[Old Testament/Isaiah/Isaiah 11#^verse-1|11:1-5]]; [[Old Testament/Isaiah/Isaiah 53|53]]; and [[Old Testament/Isaiah/Isaiah 61#^verse-1|61:1-3]] foreshadow the mission of the Savior. [[Old Testament/Isaiah/Isaiah 2|Chapters 2]], [[Old Testament/Isaiah/Isaiah 11|11]], [[Old Testament/Isaiah/Isaiah 12|12]], and [[Old Testament/Isaiah/Isaiah 35|35]] deal with events in the latter days, when the gospel will be restored, Israel will be gathered, and the thirsty land will blossom as the rose. [[Old Testament/Isaiah/Isaiah 29|Chapter 29]] contains a prophecy of the coming forth of the Book of Mormon ([[Book of Mormon/2 Nephi/2 Nephi 27|2 Ne. 27]]). [[Old Testament/Isaiah/Isaiah 40|Chapters 40-46]] proclaim the superiority of Jehovah as the true God over the idol gods of the pagan worshipers. The [[Old Testament/Isaiah/Isaiah 47|remaining chapters, 47-66]], deal with events in the final restoration of Israel and the establishment of Zion, with the Lord dwelling among His people.
+
+[[Study Helps/Guide to the Scriptures/Isaac|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Ishmael, Father-in-Law of Nephi|Next Entry]]

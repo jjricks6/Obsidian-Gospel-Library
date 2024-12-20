@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Jotham|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Juda|Next Entry]]
+
+ A name given to every 50th year. It got its name from the fact that the beginning of the year was announced by the blowing of a trumpet on the Day of Atonement. In it land that had changed hands, except in non-Levitical walled cities, reverted to the family to which it had belonged at the original settlement, and all bondmen of Israelite birth were set free ([[Old Testament/Leviticus/Leviticus 25#^verse-8|Lev. 25:8-16, 23-55]]; [[Old Testament/Leviticus/Leviticus 27#^verse-16|27:16-25]]). We have no record in the Old Testament of the observance of any year of jubilee, but the prophets allude to it in various passages. See [[Study Helps/Bible Dictionary/Sabbatical Year|Sabbatical Year]].
+
+[[Study Helps/Bible Dictionary/Jotham|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Juda|Next Entry]]

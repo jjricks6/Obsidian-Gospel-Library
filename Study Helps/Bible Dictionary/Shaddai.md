@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Seth|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Shallum|Next Entry]]
+
+ A name of God, rendered "Almighty" in [[Old Testament/Genesis/Genesis 17#^verse-1|Gen. 17:1]]; [[Old Testament/Genesis/Genesis 28#^verse-3|28:3]]; [[Old Testament/Genesis/Genesis 35#^verse-11|35:11]]; [[Old Testament/Genesis/Genesis 43#^verse-14|43:14]]; [[Old Testament/Genesis/Genesis 48#^verse-3|48:3]]; [[Old Testament/Genesis/Genesis 49#^verse-25|49:25]]; [[Old Testament/Exodus/Exodus 6#^verse-3|Ex. 6:3]]; [[Old Testament/Numbers/Numbers 24#^verse-4|Num. 24:4, 16]]; [[Old Testament/Ruth/Ruth 1#^verse-20|Ruth 1:20-21]]; 31 times in Job; [[Old Testament/Psalms/Psalms 68#^verse-14|Ps. 68:14]]; [[Old Testament/Psalms/Psalms 91#^verse-1|91:1]]; [[Old Testament/Isaiah/Isaiah 13#^verse-6|Isa. 13:6]]; [[Old Testament/Ezekiel/Ezekiel 1#^verse-24|Ezek. 1:24]]; [[Old Testament/Ezekiel/Ezekiel 10#^verse-5|10:5]]; [[Old Testament/Joel/Joel 1#^verse-15|Joel 1:15]]. See [[Study Helps/Bible Dictionary/God|God]].
+
+[[Study Helps/Bible Dictionary/Seth|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Shallum|Next Entry]]

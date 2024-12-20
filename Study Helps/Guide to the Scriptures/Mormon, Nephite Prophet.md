@@ -1,0 +1,15 @@
+[[Study Helps/Guide to the Scriptures/Mormon, Book of|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Mormon(s)|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Book of Mormon|Book of Mormon]]
+
+ A Nephite prophet, military general, and record keeper in the Book of Mormon. Mormon lived about A.D. 311-385 ([[Book of Mormon/Mormon/Mormon 1#^verse-2|Morm. 1:2, 6]]; [[Book of Mormon/Mormon/Mormon 6#^verse-5|6:5-6]]; [[Book of Mormon/Mormon/Mormon 8#^verse-2|8:2-3]]). He was a military leader for most of his life, beginning at age fifteen ([[Book of Mormon/Mormon/Mormon 2#^verse-1|Morm. 2:1-2]]; [[Book of Mormon/Mormon/Mormon 3#^verse-8|3:8-12]]; [[Book of Mormon/Mormon/Mormon 5#^verse-1|5:1]]; [[Book of Mormon/Mormon/Mormon 8#^verse-2|8:2-3]]). Ammaron instructed Mormon to prepare himself to take charge of the records and record keeping ([[Book of Mormon/Mormon/Mormon 1#^verse-2|Morm. 1:2-5]]; [[Book of Mormon/Mormon/Mormon 2#^verse-17|2:17-18]]). After recording the history of his own lifetime, Mormon abridged the large plates of Nephi on the plates of Mormon. He later turned this sacred record over to his son Moroni. These plates were part of the record from which Joseph Smith translated the Book of Mormon.
+
+## The Words of Mormon
+
+ A small book in the Book of Mormon. Between the last words of Amaleki in the book of Omni and the first words in the book of Mosiah, Mormon, the editor of all the records, made this small insertion. (See "[[Book of Mormon/Breif Explanation about the Book of Mormon|A Brief Explanation about the Book of Mormon]]" in the front of the Book of Mormon.)
+
+## The book of Mormon
+
+ A separate book within the volume of scripture known as the Book of Mormon. [[Book of Mormon/Mormon/Mormon 1|Chapters 1-2]] tell of Ammaron, a prophet of the Nephites, instructing Mormon when and where to get the plates. Also, the great wars began, and the Three Nephites were taken away because of the people's wickedness. [[Book of Mormon/Mormon/Mormon 3|Chapters 3-4]] tell of Mormon crying repentance to the people, but they were past feeling, and greater wickedness prevailed than ever before in Israel. [[Book of Mormon/Mormon/Mormon 5|Chapters 5-6]] record the final battles between the Nephites and the Lamanites. Mormon was slain along with most of the Nephite nation. In [[Book of Mormon/Mormon/Mormon 7|chapter 7]], before his death, Mormon called on people—then and in the future—to repent. [[Book of Mormon/Mormon/Mormon 8|Chapters 8-9]] record that finally only Mormon's son, Moroni, was left. He recorded the final scenes of death and carnage, including the end of the Nephite people, and wrote a message to future generations and readers of this record.
+
+[[Study Helps/Guide to the Scriptures/Mormon, Book of|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Mormon(s)|Next Entry]]

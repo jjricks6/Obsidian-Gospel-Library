@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Son of God|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Sons and Daughters of God|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/God, Godhead|God, Godhead]]; [[Study Helps/Guide to the Scriptures/Jesus Christ|Jesus Christ]]
+
+ A title that Jesus Christ used when speaking of Himself ([[New Testament/Luke/Luke 9#^verse-22|Luke 9:22]]; [[New Testament/Luke/Luke 21#^verse-36|21:36]]). It meant the Son of the Man of Holiness. Man of Holiness is one of the names of God the Father. When Jesus called Himself the Son of Man, it was an open declaration of His divine relationship with the Father. This title is found frequently in the Gospels. Latter-day revelation confirms the special meaning and sacredness of this name of the Savior ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 45#^verse-39|D&C 45:39]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 49#^verse-6|49:6, 22]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 58#^verse-65|58:65]]; [[Pearl of Great Price/Moses/Moses 6#^verse-57|Moses 6:57]]).
+
+[[Study Helps/Guide to the Scriptures/Son of God|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Sons and Daughters of God|Next Entry]]

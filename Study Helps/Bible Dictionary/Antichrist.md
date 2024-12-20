@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Anon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Antioch|Next Entry]]
+
+ A word used by John to describe one who would assume the guise of Christ but in reality would be opposed to Christ ([[New Testament/1 John/1 John 2#^verse-18|1 Jn. 2:18-22]]; [[New Testament/1 John/1 John 4#^verse-3|4:3-6]]; [[New Testament/2 John#^verse-7|2 Jn. 1:7]]). In a broader sense it is anyone or anything that counterfeits the true gospel or plan of salvation and that openly or secretly is set up in opposition to Christ. The great antichrist is Lucifer, but he has many assistants both as spirit beings and as mortals. See [[New Testament/2 Thessalonians/2 Thessalonians 2#^verse-1|2 Thes. 2:1-12]]; [[New Testament/Revelation/Revelation 13#^verse-17|Rev. 13:17]]; [[Book of Mormon/Jacob/Jacob 7#^verse-1|Jacob 7:1-23]]; [[Book of Mormon/Alma/Alma 1#^verse-2|Alma 1:2-16]]; [[Book of Mormon/Alma/Alma 30#^verse-6|30:6-60]].
+
+[[Study Helps/Bible Dictionary/Anon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Antioch|Next Entry]]

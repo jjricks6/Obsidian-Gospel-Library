@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Azotus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Baasha|Next Entry]]
+
+ Possessor, lord. The Sun-god and the male or generative principle in nature. He was worshipped with different ideas and rites (compare the plural Baalim) in different places: in Phoenicia as Baal ([[Old Testament/1 Kings/1 Kings 16#^verse-31|1 Kgs. 16:31]]); by Moabites, etc., as Baal-peor ([[Old Testament/Numbers/Numbers 25#^verse-1|Num. 25:1-3, 17-18]]); at Shechem as Baal-berith ([[Old Testament/Judges/Judges 8#^verse-33|Judg. 8:33]]; [[Old Testament/Judges/Judges 9#^verse-4|9:4]]); at Ekron as Baal-zebub ([[Old Testament/2 Kings/2 Kings 1#^verse-2|2 Kgs. 1:2]]). Baal is by some identified with Bel of Babylon and Zeus of Greece. The word Baal expresses the relation between lord and slave. Becoming utterly abominable from its associations, its use was abjured and Bosheth (shame) was substituted in names compounded with it. (Compare Ishbosheth and Jerubbesheth, which was also a name for Gideon.) The prophets call Baal "the Shame" ([[Old Testament/Jeremiah/Jeremiah 11#^verse-13|Jer. 11:13]]; [[Old Testament/Hosea/Hosea 9#^verse-10|Hosea 9:10]]). Ashtoreth was the goddess generally worshipped along with Baal.
+
+ Compounds of Baal with a second word denote (1) an attribute of the god, (2) the place or manner of his worship, or (3) something that a place possesses.
+
+[[Study Helps/Bible Dictionary/Azotus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Baasha|Next Entry]]

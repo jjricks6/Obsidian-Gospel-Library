@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Paran, Wilderness of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Parthians|Next Entry]]
+
+ A Greek word that is the technical term in the New Testament for the Second Coming of the Lord in glory to judge the world (see [[New Testament/Matthew/Matthew 24#^verse-3|Matt. 24:3, 27, 39]]; [[New Testament/1 Corinthians/1 Corinthians 15#^verse-23|1 Cor. 15:23]]; [[New Testament/1 Thessalonians/1 Thessalonians 2#^verse-19|1 Thes. 2:19]]; [[New Testament/1 Thessalonians/1 Thessalonians 3#^verse-13|3:13]]; [[New Testament/1 Thessalonians/1 Thessalonians 4#^verse-15|4:15]]; [[New Testament/1 Thessalonians/1 Thessalonians 5#^verse-23|5:23]]; [[New Testament/2 Thessalonians/2 Thessalonians 2#^verse-1|2 Thes. 2:1, 8]]; [[New Testament/2 Peter/2 Peter 1#^verse-16|2 Pet. 1:16]]; [[New Testament/2 Peter/2 Peter 3#^verse-4|3:4]]).
+
+[[Study Helps/Bible Dictionary/Paran, Wilderness of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Parthians|Next Entry]]

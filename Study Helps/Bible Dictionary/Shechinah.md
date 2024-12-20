@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Shechem|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sheep|Next Entry]]
+
+ The Presence. A word used by the later Jews (and borrowed from them by the Christians) to denote the cloud of brightness and glory that marked the presence of the Lord, as spoken of in [[Old Testament/Exodus/Exodus 3#^verse-1|Ex. 3:1-6]]; [[Old Testament/Exodus/Exodus 24#^verse-16|24:16]]; [[Old Testament/1 Kings/1 Kings 8#^verse-10|1 Kgs. 8:10]]; [[Old Testament/Isaiah/Isaiah 6#^verse-1|Isa. 6:1-3]]; [[New Testament/Matthew/Matthew 17#^verse-5|Matt. 17:5]]; [[New Testament/Acts/Acts 7#^verse-55|Acts 7:55]]. The Prophet Joseph Smith described this phenomenon in connection with his First Vision, as a "light ... above the brightness of the sun," and said that he saw two Personages whose "brightness and glory defy all description," standing "in the light" ([[Pearl of Great Price/Joseph Smith—History#^verse-16|JS—H 1:16-18]]).
+
+[[Study Helps/Bible Dictionary/Shechem|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sheep|Next Entry]]

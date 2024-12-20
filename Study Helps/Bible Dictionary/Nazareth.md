@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Nazarene|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Nazarite|Next Entry]]
+
+ Early home of Jesus ([[New Testament/Matthew/Matthew 2#^verse-23|Matt. 2:23]]; [[New Testament/Matthew/Matthew 4#^verse-13|4:13]]; [[New Testament/Luke/Luke 1#^verse-26|Luke 1:26]]; [[New Testament/Luke/Luke 2#^verse-4|2:4, 39]]; [[New Testament/Luke/Luke 4#^verse-16|4:16]]). The village lies in a hollow among the hills of Galilee, just above the Plain of Esdraelon, and near several of the main roads of that region. It was in the synagogue at Nazareth that the Lord declared Himself to be the fulfiller of the prophecy in [[Old Testament/Isaiah/Isaiah 61#^verse-1|Isa. 61:1-2]]. See [[New Testament/Luke/Luke 4#^verse-16|Luke 4:16-30]]; see also [[New Testament/Matthew/Matthew 13#^verse-54|Matt. 13:54]]; [[New Testament/Mark/Mark 6#^verse-1|Mark 6:1]]. After His rejection on that occasion the Lord does not appear ever to have visited the place again.
+
+[[Study Helps/Bible Dictionary/Nazarene|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Nazarite|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Tiberias, Sea of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Timotheus|Next Entry]]
+
+ (In Chronicles spelled Tilgath-pilneser.) King of Assyria, 747-734 B.C., took Gilead, Galilee, and Naphtali from Pekah, king of Israel ([[Old Testament/2 Kings/2 Kings 15#^verse-29|2 Kgs. 15:29]]); hired by Ahaz, king of Judah against Rezin and Pekah ([[Old Testament/2 Kings/2 Kings 16#^verse-7|2 Kgs. 16:7]]); took Damascus ([[Old Testament/2 Kings/2 Kings 16#^verse-9|2 Kgs. 16:9]]); other conquests ([[Old Testament/1 Chronicles/1 Chronicles 5#^verse-26|1 Chr. 5:26]]); distressed Ahaz ([[Old Testament/2 Chronicles/2 Chronicles 28#^verse-20|2 Chr. 28:20]]).
+
+[[Study Helps/Bible Dictionary/Tiberias, Sea of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Timotheus|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Mizraim|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Moabite Stone|Next Entry]]
+
+ Son of Lot's eldest daughter ([[Old Testament/Genesis/Genesis 19#^verse-37|Gen. 19:37]]). The land of Moab lay east of the Dead Sea. The Moabites were akin to the Israelites and spoke a language that closely resembled Hebrew, but there was constant warfare between the two nations ([[Old Testament/Numbers/Numbers 22|Num. 22-25]]; [[Old Testament/Judges/Judges 3#^verse-12|Judg. 3:12-30]]; [[Old Testament/Judges/Judges 11#^verse-17|11:17]]; [[Old Testament/2 Samuel/2 Samuel 8#^verse-2|2 Sam. 8:2]]; [[Old Testament/2 Kings/2 Kings 3#^verse-6|2 Kgs. 3:6-27]]; [[Old Testament/2 Kings/2 Kings 13#^verse-20|13:20]]; [[Old Testament/2 Kings/2 Kings 24#^verse-2|24:2]]; [[Old Testament/1 Chronicles/1 Chronicles 18#^verse-2|1 Chr. 18:2]]; [[Old Testament/2 Chronicles/2 Chronicles 20#^verse-1|2 Chr. 20:1-25]]).
+
+[[Study Helps/Bible Dictionary/Mizraim|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Moabite Stone|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Peace offering|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Pekah|Next Entry]]
+
+ One's very own, exclusive, or special; not used in the Bible as odd or eccentric. The Hebrew word segullah, which is translated "peculiar" in [[Old Testament/Deuteronomy/Deuteronomy 14#^verse-2|Deut. 14:2]] and [[Old Testament/Deuteronomy/Deuteronomy 26#^verse-18|26:18]], is translated "special" in [[Old Testament/Deuteronomy/Deuteronomy 7#^verse-6|Deut. 7:6]]. Compare the various translations of the same word in [[Old Testament/Exodus/Exodus 19#^verse-5|Ex. 19:5]]; [[Old Testament/Psalms/Psalms 135#^verse-4|Ps. 135:4]]; [[Old Testament/Ecclesiastes/Ecclesiastes 2#^verse-8|Eccl. 2:8]]; [[Old Testament/Malachi/Malachi 3#^verse-17|Mal. 3:17]]. [[New Testament/Titus/Titus 2#^verse-14|Titus 2:14]] and [[New Testament/1 Peter/1 Peter 2#^verse-9|1 Pet. 2:9]] should carry the meaning of the saints' being the Lord's own special people or treasure.
+
+[[Study Helps/Bible Dictionary/Peace offering|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Pekah|Next Entry]]

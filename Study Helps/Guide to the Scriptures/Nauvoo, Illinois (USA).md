@@ -1,0 +1,9 @@
+[[Study Helps/Guide to the Scriptures/Natural Man|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Nazareth|Next Entry]]
+
+ A city established by the Latter-day Saints in 1839 in the state of Illinois. It is located on the Mississippi River, nearly 200 miles (320 kilometers) up the river from St. Louis.
+
+ Due to persecutions in the state of Missouri, the Saints moved about 200 miles to the northeast, across the Mississippi River, and into Illinois, where they found more favorable conditions. Eventually, the Saints purchased land near the undeveloped city of Commerce. This land was virtually swamp wilderness with only a few simple buildings. The Saints drained the land and established homes. Joseph Smith moved his family into a small log home. The city name of Commerce was changed to Nauvoo, after the Hebrew word for "beautiful."
+
+ Several sections of the Doctrine and Covenants were recorded in Nauvoo ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124|D&C 124-129]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 132|132]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 135|135]]). The Saints were told to build a temple in Nauvoo ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124#^verse-26|D&C 124:26-27]]). They built the temple and organized stakes of Zion before being driven from their homes in 1846. As a result of this persecution, the Saints left the area and made their way west.
+
+[[Study Helps/Guide to the Scriptures/Natural Man|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Nazareth|Next Entry]]

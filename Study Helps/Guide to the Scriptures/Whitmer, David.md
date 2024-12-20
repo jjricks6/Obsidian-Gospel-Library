@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Welfare|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Whitmer, John|Next Entry]]
+
+ An early leader in the restored Church and one of the Three Witnesses to the divine origin and truthfulness of the Book of Mormon ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 14|D&C 14]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 17|17-18]]). The Lord gave him personal instructions in [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 14|Doctrine and Covenants 14]] and [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 30#^verse-1|30:1-4]].
+
+[[Study Helps/Guide to the Scriptures/Welfare|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Whitmer, John|Next Entry]]

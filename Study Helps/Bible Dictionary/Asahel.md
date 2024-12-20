@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Asa|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Asaph|Next Entry]]
+
+ God hath made. Youngest son of Zeruiah, one of David's 30 heroes ([[Old Testament/2 Samuel/2 Samuel 23#^verse-24|2 Sam. 23:24]]) and a commander in his army ([[Old Testament/1 Chronicles/1 Chronicles 27#^verse-7|1 Chr. 27:7]]); celebrated for his swiftness of foot, an accomplishment much valued in ancient times; slain by Abner ([[Old Testament/2 Samuel/2 Samuel 2#^verse-18|2 Sam. 2:18-32]]); Joab's revenge ([[Old Testament/2 Samuel/2 Samuel 3#^verse-27|3:27-30]]; see also [[Old Testament/1 Chronicles/1 Chronicles 2#^verse-16|1 Chr. 2:16]]; [[Old Testament/1 Chronicles/1 Chronicles 11#^verse-26|11:26]]). Three other persons, [[Old Testament/2 Chronicles/2 Chronicles 17#^verse-8|2 Chr. 17:8]]; [[Old Testament/2 Chronicles/2 Chronicles 31#^verse-13|31:13]]; [[Old Testament/Ezra/Ezra 10#^verse-15|Ezra 10:15]].
+
+[[Study Helps/Bible Dictionary/Asa|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Asaph|Next Entry]]

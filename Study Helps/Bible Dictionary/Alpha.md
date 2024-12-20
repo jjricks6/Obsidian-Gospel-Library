@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Aloes, or lign-aloes|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Alphaeus|Next Entry]]
+
+ First letter of the Greek alphabet, often used in conjunction with Omega, the last letter, and applied as descriptive names of the all-encompassing nature of Christ, being the first and the last, the beginning and the end ([[New Testament/Revelation/Revelation 1#^verse-8|Rev. 1:8, 11]]; [[New Testament/Revelation/Revelation 21#^verse-6|21:6]]; [[New Testament/Revelation/Revelation 22#^verse-13|22:13]]; [[Book of Mormon/3 Nephi/3 Nephi 9#^verse-18|3 Ne. 9:18]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 19#^verse-1|D&C 19:1]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 38#^verse-1|38:1]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 45#^verse-7|45:7]]).
+
+[[Study Helps/Bible Dictionary/Aloes, or lign-aloes|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Alphaeus|Next Entry]]

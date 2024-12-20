@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Easter|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ebenezer|Next Entry]]
+
+ A mountain some 3000 feet high, to the north of Shechem, Mount Gerizim lying to the south. Here Joshua explained to the Israelites the curse that would fall on them if they disobeyed the commandments of God as delivered by Moses in [[Old Testament/Deuteronomy/Deuteronomy 11#^verse-26|Deut. 11:26-29]]; [[Old Testament/Deuteronomy/Deuteronomy 27#^verse-11|27:11-26]]. See also [[Old Testament/Joshua/Joshua 8#^verse-32|Josh. 8:32-35]]. It was also to be the site of a great altar ([[Old Testament/Deuteronomy/Deuteronomy 27#^verse-2|Deut. 27:2-8]]; [[Old Testament/Joshua/Joshua 8#^verse-30|Josh. 8:30-31]]). See also [[Study Helps/Bible Dictionary/Gerizim and Ebal|Gerizim and Ebal]].
+
+[[Study Helps/Bible Dictionary/Easter|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ebenezer|Next Entry]]

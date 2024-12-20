@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Censer|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cephas|Next Entry]]
+
+ An officer of the Roman army, in command of a century, or company of 100 men, forming one-sixtieth part of a Roman legion. In New Testament times the legions were not up to their full strength, and a century varied from 50 to 100 men. At least five centurions are mentioned in the New Testament, of which perhaps the best known is Cornelius ([[New Testament/Acts/Acts 10#^verse-1|Acts 10:1-35]]). See also [[New Testament/Matthew/Matthew 8#^verse-8|Matt. 8:8-10]]; [[New Testament/Matthew/Matthew 27#^verse-54|27:54]]; [[New Testament/Mark/Mark 15#^verse-39|Mark 15:39]]; [[New Testament/Luke/Luke 7#^verse-1|Luke 7:1-9]]; [[New Testament/Luke/Luke 23#^verse-47|23:47]]; [[New Testament/Acts/Acts 27#^verse-1|Acts 27:1]]; [[New Testament/Acts/Acts 28#^verse-16|28:16]].
+
+[[Study Helps/Bible Dictionary/Censer|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cephas|Next Entry]]

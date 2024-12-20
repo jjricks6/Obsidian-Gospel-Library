@@ -1,0 +1,11 @@
+[[Study Helps/Guide to the Scriptures/Comforter|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Commandments of God|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Commandments of God|Commandments of God]]; [[Study Helps/Guide to the Scriptures/Moses|Moses]]
+
+ Ten laws given by God through the prophet Moses to govern moral behavior.
+
+ The Hebrew name for these is the "Ten Words." They are also called the Covenant ([[Old Testament/Deuteronomy/Deuteronomy 9#^verse-9|Deut. 9:9]]) or the Testimony ([[Old Testament/Exodus/Exodus 25#^verse-21|Ex. 25:21]]; [[Old Testament/Exodus/Exodus 32#^verse-15|32:15]]). God's giving of the Ten Commandments to Moses, and through him to Israel, is described in [[Old Testament/Exodus/Exodus 19#^verse-9|Ex. 19:9-20:23]]; [[Old Testament/Exodus/Exodus 32#^verse-15|32:15-19]]; [[Old Testament/Exodus/Exodus 34#^verse-1|34:1]]. The commandments were engraved on two tables of stone, which were placed in the Ark; hence the Ark was called the Ark of the Covenant ([[Old Testament/Numbers/Numbers 10#^verse-33|Num. 10:33]]). The Lord, quoting from [[Old Testament/Deuteronomy/Deuteronomy 6#^verse-4|Deut. 6:4-5]] and [[Old Testament/Leviticus/Leviticus 19#^verse-18|Lev. 19:18]], has summarized the Ten Commandments in "two great commandments" ([[New Testament/Matthew/Matthew 22#^verse-37|Matt. 22:37-39]]).
+
+ The Ten Commandments have been repeated in latter-day revelation ([[Study Helps/Joseph Smith Translation Appendix/JST, Exodus/JST, Exodus 34#^verse-1|JST, Ex. 34:1-2, 14 [Appendix]]]; [[Book of Mormon/Mosiah/Mosiah 12#^verse-32|Mosiah 12:32-37]]; [[Book of Mormon/Mosiah/Mosiah 13#^verse-12|13:12-24]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 42#^verse-18|D&C 42:18-28]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 59#^verse-5|59:5-13]]).
+
+[[Study Helps/Guide to the Scriptures/Comforter|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Commandments of God|Next Entry]]

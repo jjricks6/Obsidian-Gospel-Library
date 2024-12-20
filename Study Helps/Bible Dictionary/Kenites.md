@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Kadesh or Kadesh-barnea|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kerioth|Next Entry]]
+
+ Probably a Midianite tribe, descended from Abraham by his wife Keturah. Moses' marriage with the daughter of Jethro, a prince and priest of Midian, was also a cause of the long-standing friendship between the Kenites and Israelites ([[Old Testament/Numbers/Numbers 24#^verse-21|Num. 24:21-22]]; [[Old Testament/Judges/Judges 1#^verse-16|Judg. 1:16]]; [[Old Testament/Judges/Judges 4#^verse-11|4:11, 17]]; [[Old Testament/Judges/Judges 5#^verse-24|5:24]]; [[Old Testament/1 Samuel/1 Samuel 15#^verse-6|1 Sam. 15:6]]; [[Old Testament/1 Samuel/1 Samuel 27#^verse-10|27:10]]; [[Old Testament/1 Samuel/1 Samuel 30#^verse-29|30:29]]). The Rechabites were a sect or family belonging to this tribe ([[Old Testament/1 Chronicles/1 Chronicles 2#^verse-55|1 Chr. 2:55]]).
+
+[[Study Helps/Bible Dictionary/Kadesh or Kadesh-barnea|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kerioth|Next Entry]]

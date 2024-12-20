@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Divination|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Dog|Next Entry]]
+
+ Permitted under some circumstances because of the hardness of the people's hearts, but as explained by Jesus, "from the beginning it was not so" ([[New Testament/Matthew/Matthew 19#^verse-3|Matt. 19:3-12]]). Regulation concerning divorce under the law of Moses is found in [[Old Testament/Leviticus/Leviticus 21#^verse-14|Lev. 21:14]]; [[Old Testament/Deuteronomy/Deuteronomy 22#^verse-19|Deut. 22:19, 29]]; [[Old Testament/Deuteronomy/Deuteronomy 24#^verse-1|24:1-4]]. In the New Testament there are instructions relating to divorce in [[New Testament/Matthew/Matthew 5#^verse-31|Matt. 5:31-32]]; [[New Testament/Matthew/Matthew 19#^verse-3|19:3-12]]; [[New Testament/Mark/Mark 10#^verse-2|Mark 10:2-12]]; [[New Testament/Luke/Luke 16#^verse-18|Luke 16:18]]; [[New Testament/1 Corinthians/1 Corinthians 7#^verse-10|1 Cor. 7:10-17]].
+
+[[Study Helps/Bible Dictionary/Divination|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Dog|Next Entry]]

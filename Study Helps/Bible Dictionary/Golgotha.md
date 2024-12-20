@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gold|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Goliath of Gath|Next Entry]]
+
+ A skull. The Aramaic name of the place where Christ was crucified ([[New Testament/Matthew/Matthew 27#^verse-33|Matt. 27:33]]; [[New Testament/Mark/Mark 15#^verse-22|Mark 15:22]]; [[New Testament/John/John 19#^verse-17|John 19:17]]). It is uncertain why it received this name—possibly because it was a round bare spot, bearing some likeness to a bald head. It was outside the gate ([[New Testament/Matthew/Matthew 28#^verse-11|Matt. 28:11]]; [[New Testament/Hebrews/Hebrews 13#^verse-12|Heb. 13:12]]) but close to the city ([[New Testament/John/John 19#^verse-20|John 19:20]]) and to some highway ([[New Testament/Mark/Mark 15#^verse-29|Mark 15:29]]). [[New Testament/Matthew/Matthew 27#^verse-33|JST Matt. 27:35]] defines Golgotha as "a place of burial" (see [[New Testament/Matthew/Matthew 27#^verse-33|Matt. 27:33 note a]]).
+
+[[Study Helps/Bible Dictionary/Gold|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Goliath of Gath|Next Entry]]

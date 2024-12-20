@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Judah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Judah, stick of|Next Entry]]
+
+ In the reign of Rehoboam the dominions of Solomon were broken up into two separate kingdoms, mainly in consequence of the jealousy between the tribes of Ephraim and Judah. The southern kingdom included the tribe of Judah and the greater part of Benjamin and had Jerusalem as its capital. On the whole it remained more faithful to the worship of Jehovah than the northern kingdom; it was less exposed to attack from the north and east, and the supreme power remained in the hands of the family of David until the Exile. It consequently managed to exist for 135 years after the downfall of the more populous and more powerful kingdom of Israel. For an outline of the history and a list of the kings, see [[Study Helps/Bible Chronology/Introduction|Bible Chronology]] in the appendix.
+
+[[Study Helps/Bible Dictionary/Judah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Judah, stick of|Next Entry]]

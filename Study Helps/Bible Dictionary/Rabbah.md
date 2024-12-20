@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Raamses|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rabbi|Next Entry]]
+
+ Chief (city). (1) In Judah ([[Old Testament/Joshua/Joshua 15#^verse-60|Josh. 15:60]]).
+
+ (2) Chief city of the Ammonites, in the deep fertile valley of the Upper Jabbock ([[Old Testament/Deuteronomy/Deuteronomy 3#^verse-11|Deut. 3:11]]; [[Old Testament/Joshua/Joshua 13#^verse-25|Josh. 13:25]]); taken by David ([[Old Testament/2 Samuel/2 Samuel 11#^verse-1|2 Sam. 11:1]]; [[Old Testament/2 Samuel/2 Samuel 12#^verse-26|12:26-27, 29]]; [[Old Testament/2 Samuel/2 Samuel 17#^verse-27|17:27]]; [[Old Testament/1 Chronicles/1 Chronicles 20#^verse-1|1 Chr. 20:1]]); prophecies against ([[Old Testament/Jeremiah/Jeremiah 49#^verse-2|Jer. 49:2-3]]; [[Old Testament/Ezekiel/Ezekiel 25#^verse-5|Ezek. 25:5]]; [[Old Testament/Amos/Amos 1#^verse-14|Amos 1:14]]). Later it received the name of Philadelphia. It is not mentioned in the New Testament, but it was a town of importance during the Roman occupation and was one of the cities of the Decapolis. There are still extensive ruins at the modern Amman.
+
+[[Study Helps/Bible Dictionary/Raamses|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rabbi|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Amaziah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ammon, Ammonites|Next Entry]]
+
+ Firm, true. The word is used to denote acceptance ([[Old Testament/Deuteronomy/Deuteronomy 27#^verse-15|Deut. 27:15-26]]) or truthfulness ([[Old Testament/1 Kings/1 Kings 1#^verse-36|1 Kgs. 1:36]]). Amen was the proper response of a person to whom an oath was administered ([[Old Testament/1 Chronicles/1 Chronicles 16#^verse-36|1 Chr. 16:36]]; [[Old Testament/Nehemiah/Nehemiah 5#^verse-13|Neh. 5:13]]; [[Old Testament/Nehemiah/Nehemiah 8#^verse-6|8:6]]). Christ is called "the Amen, the faithful and true witness" ([[New Testament/Revelation/Revelation 3#^verse-14|Rev. 3:14]]; see also [[New Testament/John/John 14#^verse-6|John 14:6]]; [[New Testament/1 Corinthians/1 Corinthians 14#^verse-16|1 Cor. 14:16]]; [[New Testament/2 Corinthians/2 Corinthians 1#^verse-20|2 Cor. 1:20]]).
+
+[[Study Helps/Bible Dictionary/Amaziah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ammon, Ammonites|Next Entry]]

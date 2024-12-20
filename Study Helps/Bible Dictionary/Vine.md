@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Veil|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Viol|Next Entry]]
+
+ Palestine has always been famous for its vines ([[Old Testament/Deuteronomy/Deuteronomy 8#^verse-7|Deut. 8:7-8]]). The growing of grapes was part of the regular occupation of the Israelites after the settlement in Canaan. The vine was frequently regarded as a symbol of the Jewish or Christian Church ([[Old Testament/Psalms/Psalms 80#^verse-8|Ps. 80:8-17]]; [[Old Testament/Isaiah/Isaiah 5#^verse-1|Isa. 5:1-7]]; [[Old Testament/Isaiah/Isaiah 27#^verse-2|27:2-3]]; [[Old Testament/Jeremiah/Jeremiah 2#^verse-21|Jer. 2:21]]; [[Old Testament/Ezekiel/Ezekiel 19#^verse-10|Ezek. 19:10-14]]; [[New Testament/Matthew/Matthew 21#^verse-33|Matt. 21:33-40]]; [[New Testament/Mark/Mark 12#^verse-1|Mark 12:1-9]]; [[New Testament/Luke/Luke 20#^verse-9|Luke 20:9-16]]; see especially [[New Testament/John/John 15#^verse-1|John 15:1-8]]).
+
+[[Study Helps/Bible Dictionary/Veil|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Viol|Next Entry]]

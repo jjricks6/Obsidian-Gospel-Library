@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Kingdom of heaven or kingdom of God|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kirjath-arba|Next Entry]]
+
+ Regarded by the Jews as forming one book. The Greek version divided the book of Samuel and the book of Kings each into two parts, calling the four portions the four books of the Kings. The Latin and English versions have followed the division though not the names of the Greek version. The books of Kings narrate the history from the rebellion of Adonijah to the final captivity of Judah, including the whole history of the northern kingdom from the separation till its disappearance in 721 B.C. The succession of events can be found under [[Study Helps/Bible Chronology/Introduction|Bible Chronology]] in the appendix. The books were compiled by some unknown writer from a variety of written documents, including the state chronicles.
+
+[[Study Helps/Bible Dictionary/Kingdom of heaven or kingdom of God|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kirjath-arba|Next Entry]]

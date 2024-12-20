@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Bel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Belshazzar|Next Entry]]
+
+ Worthless. Sometimes translated "wicked" ([[Old Testament/2 Samuel/2 Samuel 23#^verse-6|2 Sam. 23:6]]); sons of Belial, or wicked men ([[Old Testament/Deuteronomy/Deuteronomy 13#^verse-13|Deut. 13:13]]; [[Old Testament/Judges/Judges 19#^verse-22|Judg. 19:22]]; [[Old Testament/Judges/Judges 20#^verse-13|20:13]]; [[Old Testament/1 Samuel/1 Samuel 1#^verse-16|1 Sam. 1:16]]; [[Old Testament/1 Samuel/1 Samuel 2#^verse-12|2:12]]; [[Old Testament/1 Samuel/1 Samuel 10#^verse-27|10:27]]; [[Old Testament/1 Samuel/1 Samuel 25#^verse-17|25:17, 25]]; [[Old Testament/1 Samuel/1 Samuel 30#^verse-22|30:22]]; [[Old Testament/2 Samuel/2 Samuel 16#^verse-7|2 Sam. 16:7]]; [[Old Testament/2 Samuel/2 Samuel 20#^verse-1|20:1]]; [[Old Testament/1 Kings/1 Kings 21#^verse-10|1 Kgs. 21:10, 13]]; [[Old Testament/2 Chronicles/2 Chronicles 13#^verse-7|2 Chr. 13:7]]; [[New Testament/2 Corinthians/2 Corinthians 6#^verse-15|2 Cor. 6:15]]).
+
+[[Study Helps/Bible Dictionary/Bel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Belshazzar|Next Entry]]

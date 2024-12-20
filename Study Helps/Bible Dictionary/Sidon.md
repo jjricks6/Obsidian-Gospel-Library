@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Siddim, Vale of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sihon|Next Entry]]
+
+ [[Old Testament/Genesis/Genesis 10#^verse-15|Gen. 10:15]]. Firstborn of Canaan, and name of a city ([[Old Testament/Genesis/Genesis 10#^verse-19|Gen. 10:19]] and elsewhere in the Old Testament). People from the district came to listen to the Lord ([[New Testament/Mark/Mark 3#^verse-8|Mark 3:8]]), and on one occasion He visited the neighborhood ([[New Testament/Mark/Mark 7#^verse-24|7:24]]; see also [[New Testament/Matthew/Matthew 11#^verse-21|Matt. 11:21-22]]; [[New Testament/Matthew/Matthew 15#^verse-21|15:21]]; [[New Testament/Luke/Luke 4#^verse-26|Luke 4:26]]; [[New Testament/Luke/Luke 6#^verse-17|6:17]]; [[New Testament/Luke/Luke 10#^verse-13|10:13-14]]; [[New Testament/Acts/Acts 12#^verse-20|Acts 12:20]]; [[New Testament/Acts/Acts 27#^verse-3|27:3]]). See [[Study Helps/Bible Dictionary/Zidon|Zidon]].
+
+[[Study Helps/Bible Dictionary/Siddim, Vale of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sihon|Next Entry]]

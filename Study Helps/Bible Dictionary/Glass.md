@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Girgashites|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gleanings|Next Entry]]
+
+ Made and used by the Egyptians, Hebrews, and other early races. In the Revelation of John it is an emblem of brightness ([[New Testament/Revelation/Revelation 4#^verse-6|Rev. 4:6]]; [[New Testament/Revelation/Revelation 15#^verse-2|15:2]]; [[New Testament/Revelation/Revelation 21#^verse-18|21:18]]). The "glass" mentioned in the New Testament as an instrument for reflection ([[New Testament/1 Corinthians/1 Corinthians 13#^verse-12|1 Cor. 13:12]]; [[New Testament/2 Corinthians/2 Corinthians 3#^verse-18|2 Cor. 3:18]]; [[New Testament/James/James 1#^verse-23|James 1:23]]) was a mirror made of polished metal.
+
+[[Study Helps/Bible Dictionary/Girgashites|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Gleanings|Next Entry]]

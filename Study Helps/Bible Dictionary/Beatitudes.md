@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Beard|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Beautiful Gate of the Temple|Next Entry]]
+
+ Name given to certain declarations of blessedness in the Sermon on the Mount ([[New Testament/Matthew/Matthew 5#^verse-3|Matt. 5:3-11]]; [[New Testament/Luke/Luke 6#^verse-20|Luke 6:20-22]]). They describe certain elements that go to form the refined and spiritual character, all of which will be present whenever that character exists in its perfection. Rather than being isolated statements, the Beatitudes are interrelated and progressive in their arrangement. A more comprehensive and accurate listing is found in [[Book of Mormon/3 Nephi/3 Nephi 12#^verse-1|3 Ne. 12:1-12]], where a greater spiritual emphasis is given. (The JST wording is similar to 3 Ne.)
+
+[[Study Helps/Bible Dictionary/Beard|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Beautiful Gate of the Temple|Next Entry]]

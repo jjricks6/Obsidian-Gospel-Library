@@ -1,0 +1,11 @@
+[[Study Helps/Bible Dictionary/Rainbow|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rameses|Next Entry]]
+
+ Height. (1) A town, about the site of which there has been much dispute, in Benjamin, on the border of Ephraim ([[Old Testament/Joshua/Joshua 18#^verse-25|Josh. 18:25]]; [[Old Testament/Judges/Judges 4#^verse-5|Judg. 4:5]]; [[Old Testament/Judges/Judges 19#^verse-13|19:13]]); the home of Samuel ([[Old Testament/1 Samuel/1 Samuel 1#^verse-19|1 Sam. 1:19]]; [[Old Testament/1 Samuel/1 Samuel 2#^verse-11|2:11]]; [[Old Testament/1 Samuel/1 Samuel 7#^verse-17|7:17]]; [[Old Testament/1 Samuel/1 Samuel 8#^verse-4|8:4]]; [[Old Testament/1 Samuel/1 Samuel 15#^verse-34|15:34]]; [[Old Testament/1 Samuel/1 Samuel 16#^verse-13|16:13]]; [[Old Testament/1 Samuel/1 Samuel 19#^verse-18|19:18-23]]; [[Old Testament/1 Samuel/1 Samuel 20#^verse-1|20:1]]; [[Old Testament/1 Samuel/1 Samuel 22#^verse-6|22:6]]; [[Old Testament/1 Samuel/1 Samuel 25#^verse-1|25:1]]; [[Old Testament/1 Samuel/1 Samuel 28#^verse-3|28:3]]). Being on the frontier and on the road to Jerusalem, it was the scene of several conflicts between Israel and Judah ([[Old Testament/1 Kings/1 Kings 15#^verse-17|1 Kgs. 15:17, 21-22]]; [[Old Testament/2 Chronicles/2 Chronicles 16#^verse-1|2 Chr. 16:1, 5-6]]). At the time of the captivity the exiles were collected here before removal to Babylon ([[Old Testament/Jeremiah/Jeremiah 31#^verse-15|Jer. 31:15]]; [[Old Testament/Jeremiah/Jeremiah 40#^verse-1|40:1]]; [[New Testament/Matthew/Matthew 2#^verse-18|Matt. 2:18]]; see [[Study Helps/Bible Dictionary/Rachel|Rachel]]; see also [[Old Testament/Ezra/Ezra 2#^verse-26|Ezra 2:26]]; [[Old Testament/Nehemiah/Nehemiah 7#^verse-30|Neh. 7:30]]; [[Old Testament/Nehemiah/Nehemiah 11#^verse-33|11:33]]; [[Old Testament/Isaiah/Isaiah 10#^verse-29|Isa. 10:29]]; [[Old Testament/Hosea/Hosea 5#^verse-8|Hosea 5:8]]).
+
+ (2) [[Old Testament/Joshua/Joshua 19#^verse-36|Josh. 19:36]].
+
+ (3) [[Old Testament/Joshua/Joshua 19#^verse-29|Josh. 19:29]].
+
+ (4) Ramoth-gilead ([[Old Testament/2 Kings/2 Kings 8#^verse-29|2 Kgs. 8:29]]; [[Old Testament/2 Chronicles/2 Chronicles 22#^verse-6|2 Chr. 22:6]]).
+
+[[Study Helps/Bible Dictionary/Rainbow|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rameses|Next Entry]]

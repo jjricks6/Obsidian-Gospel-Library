@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Judah, Kingdom of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Judas|Next Entry]]
+
+ A reference to the Bible as a record of the house of Judah ([[Old Testament/Ezekiel/Ezekiel 37#^verse-15|Ezek. 37:15-19]]). See also [[Study Helps/Bible Dictionary/Ephraim, stick of|Ephraim, stick of]]. In the last days, when the various branches of the house of Israel are gathered, their sacred records will also be gathered together. These scriptural records complement one another and form a unified testimony that Jesus is the Christ, the God of Israel and the God of the whole world. See also [[Study Helps/Joseph Smith Translation Appendix/JST, Genesis/JST, Genesis 50#^verse-24|JST Gen. 50:24-36 (Appendix)]]; [[Book of Mormon/2 Nephi/2 Nephi 3|2 Ne. 3]]; [[Book of Mormon/2 Nephi/2 Nephi 29|29]].
+
+[[Study Helps/Bible Dictionary/Judah, Kingdom of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Judas|Next Entry]]

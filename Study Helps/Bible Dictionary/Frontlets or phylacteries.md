@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Frankincense|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Froward|Next Entry]]
+
+ Strips of parchment on which were written four passages of scriptures ([[Old Testament/Exodus/Exodus 13#^verse-1|Ex. 13:1-10, 11-16]]; [[Old Testament/Deuteronomy/Deuteronomy 6#^verse-5|Deut. 6:5-9]]; [[Old Testament/Deuteronomy/Deuteronomy 11#^verse-13|11:13-21]]) and that were rolled up and attached to bands of leather worn (as an act of obedience to [[Old Testament/Exodus/Exodus 13#^verse-9|Ex. 13:9, 16]]; [[Old Testament/Deuteronomy/Deuteronomy 6#^verse-8|Deut. 6:8]]; [[Old Testament/Deuteronomy/Deuteronomy 11#^verse-18|11:18]]) around the forehead or around the arm. The Jews called them tephillin. The Pharisees wore them broader than other people in order to make them as conspicuous as possible ([[New Testament/Matthew/Matthew 23#^verse-5|Matt. 23:5]]).
+
+[[Study Helps/Bible Dictionary/Frankincense|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Froward|Next Entry]]

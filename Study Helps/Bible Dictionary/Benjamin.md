@@ -1,0 +1,9 @@
+[[Study Helps/Bible Dictionary/Benhadad|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Benoni|Next Entry]]
+
+ Son of the right hand. (1) Son of Jacob and Rachel; his birth, [[Old Testament/Genesis/Genesis 35#^verse-18|Gen. 35:18]]; how brought to Egypt and treated by Joseph, [[Old Testament/Genesis/Genesis 42|Gen. 42-45]]; blessing of, by Jacob, [[Old Testament/Genesis/Genesis 49#^verse-27|49:27]]; by Moses, [[Old Testament/Deuteronomy/Deuteronomy 33#^verse-12|Deut. 33:12]]; border and cities, [[Old Testament/Joshua/Joshua 18#^verse-11|Josh. 18:11-28]]; [[Old Testament/Joshua/Joshua 21#^verse-4|21:4, 17]]; [[Old Testament/Judges/Judges 1#^verse-21|Judg. 1:21]]. The Benjamites were a warlike race and did great service in resisting the Philistine oppression. The tribe provided the first king in the person of Saul ([[Old Testament/1 Samuel/1 Samuel 9#^verse-1|1 Sam. 9:1-2]]). At the division of the kingdom Benjamin joined the northern tribes ([[Old Testament/1 Kings/1 Kings 12#^verse-21|1 Kgs. 12:21]]), but the nearness to Jerusalem seems to have caused Benjamin gradually to become part of the kingdom of Judah. The most distinguished Benjamite was the Apostle Paul ([[New Testament/Romans/Romans 11#^verse-1|Rom. 11:1]]).
+
+ (2) [[Old Testament/1 Chronicles/1 Chronicles 7#^verse-10|1 Chr. 7:10]].
+
+ (3) [[Old Testament/Ezra/Ezra 10#^verse-32|Ezra 10:32]]; [[Old Testament/Nehemiah/Nehemiah 3#^verse-23|Neh. 3:23]]; [[Old Testament/Nehemiah/Nehemiah 12#^verse-34|12:34]].
+
+[[Study Helps/Bible Dictionary/Benhadad|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Benoni|Next Entry]]

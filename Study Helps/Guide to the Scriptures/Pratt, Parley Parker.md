@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Pratt, Orson|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Prayer|Next Entry]]
+
+ Older brother of Orson Pratt and one of the first Twelve Apostles called after the Restoration of the Church in modern times ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124#^verse-128|D&C 124:128-129]]). Parley Pratt was called on the first of several missionary efforts when the Lord gave a revelation to him through Joseph Smith in October 1830 ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 32|D&C 32]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 50#^verse-37|50:37]]).
+
+[[Study Helps/Guide to the Scriptures/Pratt, Orson|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Prayer|Next Entry]]

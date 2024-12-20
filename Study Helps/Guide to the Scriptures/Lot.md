@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Lost Tribes|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Lots|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Abraham|Abraham]]
+
+ In the Old Testament, the son of Haran and nephew of Abraham ([[Old Testament/Genesis/Genesis 11#^verse-27|Gen. 11:27, 31]]; [[Pearl of Great Price/Abraham/Abraham 2#^verse-4|Abr. 2:4]]). Haran died because of the famine in Ur ([[Pearl of Great Price/Abraham/Abraham 2#^verse-1|Abr. 2:1]]). Lot left Ur with Abraham and Sarah and traveled with them to Canaan ([[Old Testament/Genesis/Genesis 12#^verse-4|Gen. 12:4-5]]). Lot chose to live in Sodom. The Lord sent messengers to warn Lot to flee from Sodom before the Lord destroyed it because of the wickedness of the people ([[Old Testament/Genesis/Genesis 13#^verse-8|Gen. 13:8-13]]; [[Old Testament/Genesis/Genesis 19#^verse-1|19:1, 13, 15]]); however, Lot's wife looked backward at the destruction and became a pillar of salt ([[Old Testament/Genesis/Genesis 19#^verse-26|Gen. 19:26]]). The New Testament contains references to Lot ([[New Testament/Luke/Luke 17#^verse-29|Luke 17:29]]; [[New Testament/2 Peter/2 Peter 2#^verse-6|2 Pet. 2:6-7]]). His life after his separation from Abraham is described in [[Old Testament/Genesis/Genesis 13|Genesis 13]], [[Old Testament/Genesis/Genesis 14|14]], and [[Old Testament/Genesis/Genesis 19|19]].
+
+[[Study Helps/Guide to the Scriptures/Lost Tribes|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Lots|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Italics|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jabesh, or Jabesh-gilead|Next Entry]]
+
+ Youngest son of Aaron. The high priesthood passed into his family in the person of Eli but returned to the family of Eleazar, Ithamar's elder brother, in the person of Zadok ([[Old Testament/Exodus/Exodus 6#^verse-23|Ex. 6:23]]; [[Old Testament/Exodus/Exodus 28#^verse-1|28:1]]; [[Old Testament/Exodus/Exodus 38#^verse-21|38:21]]; [[Old Testament/Numbers/Numbers 3#^verse-4|Num. 3:4]]; [[Old Testament/Numbers/Numbers 4#^verse-28|4:28, 33]]; [[Old Testament/Numbers/Numbers 7#^verse-8|7:8]]; [[Old Testament/1 Chronicles/1 Chronicles 24#^verse-1|1 Chr. 24:1-6]]; [[Old Testament/Ezra/Ezra 8#^verse-2|Ezra 8:2]]).
+
+[[Study Helps/Bible Dictionary/Italics|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jabesh, or Jabesh-gilead|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Ephraim, Mount|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ephraim, Wood of|Next Entry]]
+
+ A prophetic reference to the Book of Mormon as a record of one portion of the tribe of Ephraim that was led from Jerusalem to America about 600 B.C. When joined with the stick of Judah (the Bible), the two records form a unified, complementary testimony of the Lord Jesus Christ, His resurrection from the grave, and His divine work among these two segments of the house of Israel. See [[Study Helps/Joseph Smith Translation Appendix/JST, Genesis/JST, Genesis 50#^verse-24|JST Gen. 50:24-26, 31 (Appendix)]]; [[Old Testament/Ezekiel/Ezekiel 37#^verse-15|Ezek. 37:15-19]]; [[Book of Mormon/2 Nephi/2 Nephi 3|2 Ne. 3]]; [[Book of Mormon/2 Nephi/2 Nephi 29|29]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 27#^verse-5|D&C 27:5]].
+
+[[Study Helps/Bible Dictionary/Ephraim, Mount|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ephraim, Wood of|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Stoics|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Stuff|Next Entry]]
+
+ The word is frequently used to denote a man of non-Israelite birth, resident in the promised land with the permission of the Israelite authorities. There were various provisions in the law with regard to the treatment of strangers, all of which were intended to secure for them justice and fair treatment ([[Old Testament/Exodus/Exodus 12#^verse-19|Ex. 12:19, 48-49]]; [[Old Testament/Exodus/Exodus 20#^verse-10|20:10]]; [[Old Testament/Leviticus/Leviticus 16#^verse-29|Lev. 16:29]]; [[Old Testament/Leviticus/Leviticus 17#^verse-8|17:8-15]]; [[Old Testament/Numbers/Numbers 9#^verse-14|Num. 9:14]]; [[Old Testament/Numbers/Numbers 15#^verse-14|15:14-30]]; [[Old Testament/Deuteronomy/Deuteronomy 1#^verse-16|Deut. 1:16]]; [[Old Testament/Deuteronomy/Deuteronomy 10#^verse-19|10:19]]; [[Old Testament/Deuteronomy/Deuteronomy 14#^verse-21|14:21]]).
+
+[[Study Helps/Bible Dictionary/Stoics|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Stuff|Next Entry]]

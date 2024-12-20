@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Tares|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Tarsus|Next Entry]]
+
+ (1) Probably Tartessus in Spain; ships of Tarshish (the name came to be used to denote ships of the largest size, suitable for long voyages) ([[Old Testament/1 Kings/1 Kings 10#^verse-22|1 Kgs. 10:22]]; [[Old Testament/Psalms/Psalms 48#^verse-7|Ps. 48:7]]; [[Old Testament/Isaiah/Isaiah 2#^verse-16|Isa. 2:16]]; [[Old Testament/Isaiah/Isaiah 23#^verse-1|23:1]]; [[Old Testament/Isaiah/Isaiah 60#^verse-9|60:9]]; [[Old Testament/Ezekiel/Ezekiel 27#^verse-25|Ezek. 27:25]]); kings of Tarshish ([[Old Testament/Psalms/Psalms 72#^verse-10|Ps. 72:10]]); merchants of Tarshish ([[Old Testament/Ezekiel/Ezekiel 27#^verse-12|Ezek. 27:12]]; [[Old Testament/Ezekiel/Ezekiel 38#^verse-13|38:13]]; also [[Old Testament/Isaiah/Isaiah 66#^verse-19|Isa. 66:19]]; [[Old Testament/Jeremiah/Jeremiah 10#^verse-9|Jer. 10:9]]; [[Old Testament/Jonah/Jonah 1#^verse-3|Jonah 1:3]]; [[Old Testament/Jonah/Jonah 4#^verse-2|4:2]]).
+
+ (2) A Tarshish in the Indian Ocean ([[Old Testament/1 Kings/1 Kings 22#^verse-48|1 Kgs. 22:48]]; [[Old Testament/2 Chronicles/2 Chronicles 9#^verse-21|2 Chr. 9:21]]; [[Old Testament/2 Chronicles/2 Chronicles 20#^verse-36|20:36]]).
+
+[[Study Helps/Bible Dictionary/Tares|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Tarsus|Next Entry]]

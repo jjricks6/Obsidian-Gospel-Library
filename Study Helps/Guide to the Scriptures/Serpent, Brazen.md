@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Sermon on the Mount|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Service|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Jesus Christ|Jesus Christ]]; [[Study Helps/Guide to the Scriptures/Moses|Moses]]
+
+ A brass serpent made by Moses at God's command to heal the Israelites who had been bitten by fiery serpents (poisonous snakes) in the wilderness ([[Old Testament/Numbers/Numbers 21#^verse-8|Num. 21:8-9]]). This brass serpent was attached to a pole and "raised up that whosoever would look upon it might live" ([[Book of Mormon/Alma/Alma 33#^verse-19|Alma 33:19-22]]). The Lord referred to the lifting up of the serpent in the wilderness as a symbol of Himself being lifted up on the cross ([[New Testament/John/John 3#^verse-14|John 3:14-15]]). Latter-day revelation confirms the account of the fiery serpents and how the people were healed ([[Book of Mormon/1 Nephi/1 Nephi 17#^verse-41|1 Ne. 17:41]]; [[Book of Mormon/2 Nephi/2 Nephi 25#^verse-20|2 Ne. 25:20]]; [[Book of Mormon/Helaman/Helaman 8#^verse-14|Hel. 8:14-15]]).
+
+[[Study Helps/Guide to the Scriptures/Sermon on the Mount|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Service|Next Entry]]

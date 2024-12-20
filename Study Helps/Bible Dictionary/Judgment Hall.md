@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Judges, the|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jupiter|Next Entry]]
+
+ Sometimes used in the KJV for the Latin word Praetorium. In [[New Testament/John/John 18#^verse-28|John 18:28, 33]]; [[New Testament/John/John 19#^verse-9|19:9]], it denotes Pilate's official residence in Jerusalem; in [[New Testament/Acts/Acts 23#^verse-35|Acts 23:35]] it denotes a part of the buildings erected by Herod in Caesarea. In [[New Testament/Matthew/Matthew 27#^verse-27|Matt. 27:27]] praetorium is translated "common hall" or "governor's house" (Pilate's house); in [[New Testament/Philippians/Philippians 1#^verse-13|Philip. 1:13]] it is translated "palace" or "Caesar's court," meaning the officers of the court before which Paul was tried.
+
+[[Study Helps/Bible Dictionary/Judges, the|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jupiter|Next Entry]]

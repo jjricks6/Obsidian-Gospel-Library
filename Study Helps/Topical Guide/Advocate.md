@@ -1,0 +1,5 @@
+[[Study Helps/Topical Guide/Adversity|Previous Entry]]  ||  [[Study Helps/Topical Guide/Affection|Next Entry]]
+
+ See [[Study Helps/Topical Guide/Jesus Christ, Advocate|Jesus Christ, Advocate]]; [[Study Helps/Topical Guide/Jesus Christ, Atonement through|Jesus Christ, Atonement through]]; [[Study Helps/Topical Guide/Jesus Christ, Authority of|Jesus Christ, Authority of]]; [[Study Helps/Topical Guide/Jesus Christ, Messenger of the Covenant|Jesus Christ, Messenger of the Covenant]]; [[Study Helps/Topical Guide/Jesus Christ, Mission of|Jesus Christ, Mission of]]; [[Study Helps/Topical Guide/Jesus Christ, Redeemer|Jesus Christ, Redeemer]]; [[Study Helps/Topical Guide/Jesus Christ, Relationships with the Father|Jesus Christ, Relationships with the Father]]; [[Study Helps/Topical Guide/Jesus Christ, Savior|Jesus Christ, Savior]]; [[Study Helps/Bible Dictionary/Advocate|BD Advocate]]
+
+[[Study Helps/Topical Guide/Adversity|Previous Entry]]  ||  [[Study Helps/Topical Guide/Affection|Next Entry]]

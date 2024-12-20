@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Articles of Faith|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Ascension|Next Entry]]
+
+ In the Old Testament, the third king of Judah. The scriptures record that his "heart was perfect with the Lord all his days" ([[Old Testament/1 Kings/1 Kings 15#^verse-14|1 Kgs. 15:14]]). During his reign he raised the army to a state of efficiency, threw off the Ethiopian yoke, removed the false idols, and invited the people to make a covenant to seek Jehovah ([[Old Testament/1 Kings/1 Kings 15|1 Kgs. 15-16]]; [[Old Testament/2 Chronicles/2 Chronicles 14|2 Chr. 14-16]]). However, when he became diseased in his feet, he did not seek the Lord's help and died ([[Old Testament/1 Kings/1 Kings 15#^verse-23|1 Kgs. 15:23-24]]; [[Old Testament/2 Chronicles/2 Chronicles 16#^verse-12|2 Chr. 16:12-13]]).
+
+[[Study Helps/Guide to the Scriptures/Articles of Faith|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Ascension|Next Entry]]

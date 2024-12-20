@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Satan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Scapegoat|Next Entry]]
+
+ Asked. (1) Son of Kish and first king of Israel; his appointment ([[Old Testament/1 Samuel/1 Samuel 9#^verse-1|1 Sam. 9:1-10:27]]); leads against Nahash ([[Old Testament/1 Samuel/1 Samuel 11|1 Sam. 11]]); offers sacrifice ([[Old Testament/1 Samuel/1 Samuel 13#^verse-9|13:9]]); his oath ([[Old Testament/1 Samuel/1 Samuel 14#^verse-24|14:24-45]]); war against Amalekites ([[Old Testament/1 Samuel/1 Samuel 15#^verse-1|15:1-9]]); rejected from being king ([[Old Testament/1 Samuel/1 Samuel 15#^verse-23|15:23]]); dealings with David ([[Old Testament/1 Samuel/1 Samuel 16#^verse-14|16:14-19:10]]; [[Old Testament/1 Samuel/1 Samuel 23#^verse-24|23:24-26:25]]); slays priests of Nob ([[Old Testament/1 Samuel/1 Samuel 22#^verse-6|22:6-19]]); his death ([[Old Testament/1 Samuel/1 Samuel 28|1 Sam. 28-31]]; [[Old Testament/2 Samuel/2 Samuel 1|2 Sam. 1]]); his burial ([[Old Testament/2 Samuel/2 Samuel 21#^verse-12|2 Sam. 21:12-14]]). Saul's downfall shows the consequences of uncontrolled self-will and disobedience to counsel.
+
+ (2) The original Jewish name of the Apostle Paul; he is so called up to [[New Testament/Acts/Acts 13#^verse-9|Acts 13:9]].
+
+[[Study Helps/Bible Dictionary/Satan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Scapegoat|Next Entry]]

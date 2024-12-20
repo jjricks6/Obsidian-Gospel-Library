@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Punishments|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Purim|Next Entry]]
+
+ There were various purifying ceremonies. Bathing the flesh and the clothes in running water was used in all and sufficed in the simplest cases. When the uncleanness was of a deeper character, a purifying water for sprinkling was provided: for example, after contact with a corpse, water mingled with the ashes of a red cow ([[Old Testament/Numbers/Numbers 19#^verse-9|Num. 19:9]]); for the leper, water in which the blood of a bird had been allowed to fall ([[Old Testament/Leviticus/Leviticus 14#^verse-6|Lev. 14:6]]). In some cases sin and trespass offerings were also made, such as for a man with an issue ([[Old Testament/Leviticus/Leviticus 15#^verse-13|Lev. 15:13-14]]); a woman after childbirth ([[Old Testament/Leviticus/Leviticus 12#^verse-6|Lev. 12:6, 8]]); and above all, the leper ([[Old Testament/Leviticus/Leviticus 14#^verse-2|Lev. 14:2-32]]). See also [[Study Helps/Bible Dictionary/Clean and unclean|Clean and unclean]].
+
+[[Study Helps/Bible Dictionary/Punishments|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Purim|Next Entry]]

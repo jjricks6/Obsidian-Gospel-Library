@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Babylon or Babel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Balm|Next Entry]]
+
+ A prophet from Pethor by the Euphrates, bribed by Balak, king of Moab, to curse the Israelites, [[Old Testament/Numbers/Numbers 22#^verse-5|Num. 22:5-18]]; his life saved by means of the ass, [[Old Testament/Numbers/Numbers 22#^verse-22|22:22-35]]; the curse turned to blessing, [[Old Testament/Numbers/Numbers 23|23-24]]; [[Old Testament/Deuteronomy/Deuteronomy 23#^verse-4|Deut. 23:4-5]]; [[Old Testament/Joshua/Joshua 24#^verse-9|Josh. 24:9-10]]; [[Old Testament/Nehemiah/Nehemiah 13#^verse-2|Neh. 13:2]]; his counsel, [[Old Testament/Numbers/Numbers 31#^verse-16|Num. 31:16]]; slain, [[Old Testament/Numbers/Numbers 31#^verse-8|31:8]]; [[Old Testament/Joshua/Joshua 13#^verse-22|Josh. 13:22]]; [[Old Testament/Micah/Micah 6#^verse-5|Micah 6:5]]; [[New Testament/2 Peter/2 Peter 2#^verse-15|2 Pet. 2:15]]; [[New Testament/Jude#^verse-11|Jude 1:11]]; [[New Testament/Revelation/Revelation 2#^verse-14|Rev. 2:14]].
+
+[[Study Helps/Bible Dictionary/Babylon or Babel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Balm|Next Entry]]

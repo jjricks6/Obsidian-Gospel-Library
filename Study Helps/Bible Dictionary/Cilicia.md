@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Church|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Circumcision|Next Entry]]
+
+ A province in the southeast of Asia Minor, separated from Cappadocia by the Taurus range, the pass through which was known as the Cilician Gates. Its capital was Tarsus, the birthplace of Paul ([[New Testament/Acts/Acts 21#^verse-39|Acts 21:39]]). Cilicia contained large settlements of Jews ([[New Testament/Acts/Acts 6#^verse-9|Acts 6:9]]); it was visited by Paul on several occasions ([[New Testament/Acts/Acts 9#^verse-30|Acts 9:30]]; [[New Testament/Acts/Acts 15#^verse-23|15:23, 41]]; [[New Testament/Acts/Acts 27#^verse-5|27:5]]; [[New Testament/Galations/Galations 1#^verse-21|Gal. 1:21]]).
+
+[[Study Helps/Bible Dictionary/Church|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Circumcision|Next Entry]]

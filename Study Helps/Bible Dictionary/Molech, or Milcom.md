@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Moabite Stone|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Money|Next Entry]]
+
+ The abomination of the children of Ammon, a fire god, worshipped by passing children through or burning them in fire ([[Old Testament/Deuteronomy/Deuteronomy 18#^verse-10|Deut. 18:10]]; [[Old Testament/2 Chronicles/2 Chronicles 28#^verse-3|2 Chr. 28:3]]). Molech worship was practiced by Solomon ([[Old Testament/1 Kings/1 Kings 11#^verse-5|1 Kgs. 11:5, 7]]); by the people of the Northern Kingdom ([[Old Testament/2 Kings/2 Kings 17#^verse-17|2 Kgs. 17:17]]); and by Ahaz and Manasseh ([[Old Testament/2 Kings/2 Kings 16#^verse-3|2 Kgs. 16:3]]; [[Old Testament/2 Kings/2 Kings 21#^verse-6|21:6]]). See also [[Old Testament/2 Kings/2 Kings 23#^verse-10|2 Kgs. 23:10]]; [[Old Testament/Jeremiah/Jeremiah 7#^verse-31|Jer. 7:31]]; [[Old Testament/Ezekiel/Ezekiel 20#^verse-26|Ezek. 20:26, 31]].
+
+[[Study Helps/Bible Dictionary/Moabite Stone|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Money|Next Entry]]

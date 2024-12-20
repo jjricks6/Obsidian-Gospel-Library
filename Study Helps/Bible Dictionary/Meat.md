@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Measures|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Meat offering or meal offering|Next Entry]]
+
+ Anything to eat; food; a meal (not necessarily flesh) ([[Old Testament/Genesis/Genesis 1#^verse-29|Gen. 1:29-30]]; [[Old Testament/Leviticus/Leviticus 22#^verse-11|Lev. 22:11, 13]]; [[Old Testament/2 Samuel/2 Samuel 13#^verse-5|2 Sam. 13:5]]; [[Old Testament/Isaiah/Isaiah 62#^verse-8|Isa. 62:8]]; [[Old Testament/Ezekiel/Ezekiel 47#^verse-12|Ezek. 47:12]]; [[Old Testament/Habakkuk/Habakkuk 3#^verse-17|Hab. 3:17]]; [[New Testament/Acts/Acts 16#^verse-34|Acts 16:34]]). In KJV meat is sometimes used to connote an offering made of grain ("meat offering") but no flesh is involved, as in [[Old Testament/Exodus/Exodus 29#^verse-41|Ex. 29:41]]; [[Old Testament/Exodus/Exodus 30#^verse-9|30:9]]; [[Old Testament/Leviticus/Leviticus 2#^verse-1|Lev. 2:1-15]]. See also [[Book of Mormon/Alma/Alma 8#^verse-21|Alma 8:21-22]].
+
+[[Study Helps/Bible Dictionary/Measures|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Meat offering or meal offering|Next Entry]]

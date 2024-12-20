@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Husband|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Hymn|Next Entry]]
+
+ A member of the first Quorum of the Twelve Apostles called in this dispensation ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 68#^verse-1|D&C 68:1-3]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 75#^verse-13|75:13]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 102#^verse-3|102:3]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124#^verse-128|124:128-129]]). He performed many missions for the Church, including dedicating the Holy Land in 1841 for the return of the Jewish people.
+
+[[Study Helps/Guide to the Scriptures/Husband|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Hymn|Next Entry]]

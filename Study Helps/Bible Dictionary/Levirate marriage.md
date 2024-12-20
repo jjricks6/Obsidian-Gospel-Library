@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Leviathan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Levites|Next Entry]]
+
+ The custom of a widow marrying her deceased husband's brother or sometimes a near heir. The word has nothing to do with the name Levi or the biblical Levites but is so called because of the Latin levir, meaning "husband's brother," connected with the English suffix -ate, thus constituting levirate. This system of marriage is designated in [[Old Testament/Deuteronomy/Deuteronomy 25#^verse-5|Deut. 25:5-10]] (see also [[Old Testament/Genesis/Genesis 38#^verse-8|Gen. 38:8]]), is spoken of in [[New Testament/Matthew/Matthew 22#^verse-23|Matt. 22:23-33]]; it also forms a major aspect of the story of Ruth ([[Old Testament/Ruth/Ruth 4#^verse-1|Ruth 4:1-12]]).
+
+[[Study Helps/Bible Dictionary/Leviathan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Levites|Next Entry]]

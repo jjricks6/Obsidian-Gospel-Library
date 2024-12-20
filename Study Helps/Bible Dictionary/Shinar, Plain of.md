@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Shimei|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ship, shipping|Next Entry]]
+
+ Place where was found Nimrod's kingdom ([[Old Testament/Genesis/Genesis 10#^verse-10|Gen. 10:10]]) and the tower of Babel ([[Old Testament/Genesis/Genesis 11#^verse-2|11:2]]). Amraphel was king of Shinar ([[Old Testament/Genesis/Genesis 14#^verse-1|14:1]]), and Judah was carried captive there ([[Old Testament/Isaiah/Isaiah 11#^verse-11|Isa. 11:11]]; [[Old Testament/Daniel/Daniel 1#^verse-2|Dan. 1:2]]; [[Old Testament/Zechariah/Zechariah 5#^verse-11|Zech. 5:11]]). The name denotes the lower part of the district between the Tigris and Euphrates, and is sometimes used as an equivalent for Babylonia.
+
+[[Study Helps/Bible Dictionary/Shimei|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ship, shipping|Next Entry]]

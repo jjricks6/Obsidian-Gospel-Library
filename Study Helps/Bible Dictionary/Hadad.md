@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Habergeon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hades|Next Entry]]
+
+ Although not mentioned as a pagan deity in the Old Testament, it is learned from the Ras Shamrah tablets that Hadad was the name of the sun god or storm god of Syria and Edom. Hadad appears in the Old Testament in compound with other names and also standing alone, as the name of several persons ([[Old Testament/Genesis/Genesis 36#^verse-35|Gen. 36:35]]; [[Old Testament/1 Kings/1 Kings 11#^verse-14|1 Kgs. 11:14-25]]; [[Old Testament/1 Kings/1 Kings 15#^verse-18|15:18-20]]; [[Old Testament/1 Kings/1 Kings 20#^verse-1|20:1-34]]; [[Old Testament/1 Chronicles/1 Chronicles 1#^verse-30|1 Chr. 1:30, 46, 50]]; [[Old Testament/Amos/Amos 1#^verse-4|Amos 1:4]]; [[Old Testament/Zechariah/Zechariah 12#^verse-11|Zech. 12:11]]), the most prominent being Benhadad, king of Damascus (Syria).
+
+[[Study Helps/Bible Dictionary/Habergeon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hades|Next Entry]]

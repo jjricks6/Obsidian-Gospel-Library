@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Thessalonica|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Thummim|Next Entry]]
+
+ One of the Twelve. The name means a "twin," and so it is translated in [[New Testament/John/John 11#^verse-16|John 11:16]] by the Greek Didymus. He is mentioned in the lists of Apostles ([[New Testament/Matthew/Matthew 10#^verse-3|Matt. 10:3]]; [[New Testament/Mark/Mark 3#^verse-18|Mark 3:18]]; [[New Testament/Luke/Luke 6#^verse-15|Luke 6:15]]; [[New Testament/Acts/Acts 1#^verse-13|Acts 1:13]]); and also in [[New Testament/John/John 11#^verse-16|John 11:16]]; [[New Testament/John/John 14#^verse-5|14:5]]; [[New Testament/John/John 20#^verse-24|20:24, 28]]; [[New Testament/John/John 21#^verse-2|21:2]].
+
+[[Study Helps/Bible Dictionary/Thessalonica|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Thummim|Next Entry]]

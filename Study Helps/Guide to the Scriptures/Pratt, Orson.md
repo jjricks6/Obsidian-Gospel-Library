@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Praise|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Pratt, Parley Parker|Next Entry]]
+
+ One of the first Twelve Apostles called after the Restoration of the Church in modern times ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124#^verse-128|D&C 124:128-129]]). He had been a member of the Church only six weeks when the Lord gave a revelation to him through Joseph Smith ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 34|D&C 34]]). Orson Pratt was also a missionary for the Church ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 52#^verse-26|D&C 52:26]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 75#^verse-14|75:14]]) and served as Church historian for several years.
+
+[[Study Helps/Guide to the Scriptures/Praise|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Pratt, Parley Parker|Next Entry]]

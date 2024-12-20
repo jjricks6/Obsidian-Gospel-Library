@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Media|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Meet|Next Entry]]
+
+ Medicine and surgery among the Israelites were of a very primitive kind, and until the introduction of Greek civilization, they never rose to the rank of sciences. The only remedies mentioned in the Old Testament are for external injuries, such as plasters, bandages, and unguents. Jeremiah speaks of a resinous gum ("balm of Gilead") noted for its healing properties ([[Old Testament/Jeremiah/Jeremiah 8#^verse-22|Jer. 8:22]]; [[Old Testament/Jeremiah/Jeremiah 46#^verse-11|46:11]]). We also hear of figs being used as a poultice ([[Old Testament/Isaiah/Isaiah 38#^verse-21|Isa. 38:21]]).
+
+[[Study Helps/Bible Dictionary/Media|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Meet|Next Entry]]

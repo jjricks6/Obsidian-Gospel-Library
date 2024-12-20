@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Zif|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Zin|Next Entry]]
+
+ A city in the Negev, originally assigned to Judah ([[Old Testament/Joshua/Joshua 15#^verse-31|Josh. 15:31]]) but transferred to Simeon ([[Old Testament/Joshua/Joshua 19#^verse-5|Josh. 19:5]]). It was a Philistine city in the days of Saul and was given by Achish to David ([[Old Testament/1 Samuel/1 Samuel 27#^verse-6|1 Sam. 27:6]]). The Amalekites made a raid upon it ([[Old Testament/1 Samuel/1 Samuel 30#^verse-1|1 Sam. 30:1-26]]; see also [[Old Testament/2 Samuel/2 Samuel 1#^verse-1|2 Sam. 1:1]]; [[Old Testament/2 Samuel/2 Samuel 4#^verse-10|4:10]]; [[Old Testament/1 Chronicles/1 Chronicles 4#^verse-30|1 Chr. 4:30]]; [[Old Testament/1 Chronicles/1 Chronicles 12#^verse-1|12:1, 20]]; [[Old Testament/Nehemiah/Nehemiah 11#^verse-28|Neh. 11:28]]).
+
+[[Study Helps/Bible Dictionary/Zif|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Zin|Next Entry]]

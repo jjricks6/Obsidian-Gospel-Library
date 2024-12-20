@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Engines of war|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Enoch|Next Entry]]
+
+ On wood, metal, and precious stones, engraving was known to the Israelites ([[Old Testament/Exodus/Exodus 28#^verse-11|Ex. 28:11]]; [[Old Testament/Exodus/Exodus 32#^verse-4|32:4]]; [[Old Testament/Exodus/Exodus 38#^verse-23|38:23]]; [[Old Testament/Exodus/Exodus 39#^verse-6|39:6]]; [[Old Testament/1 Kings/1 Kings 7#^verse-31|1 Kgs. 7:31, 36]]; [[Old Testament/2 Chronicles/2 Chronicles 2#^verse-14|2 Chr. 2:14]]; [[Old Testament/2 Chronicles/2 Chronicles 3#^verse-7|3:7]]). Specimens dating from before the Exile and bearing short Hebrew inscriptions exist at the present day. Compare the plates of Laban ([[Book of Mormon/1 Nephi/1 Nephi 3#^verse-1|1 Ne. 3:1-3, 12]]).
+
+[[Study Helps/Bible Dictionary/Engines of war|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Enoch|Next Entry]]

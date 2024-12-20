@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Ithamar|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jachin and Boaz|Next Entry]]
+
+ Jabesh means "dry." A chief city of Gilead, east of the Jordan, connected with several important events of Israelite history ([[Old Testament/Judges/Judges 21#^verse-8|Judg. 21:8-14]]; [[Old Testament/1 Samuel/1 Samuel 11|1 Sam. 11]]; [[Old Testament/1 Samuel/1 Samuel 31#^verse-11|31:11-13]]; [[Old Testament/2 Samuel/2 Samuel 2#^verse-4|2 Sam. 2:4-5]]; [[Old Testament/2 Samuel/2 Samuel 21#^verse-12|21:12]]; [[Old Testament/2 Samuel/2 Samuel 15#^verse-10|15:10-14]]). It was the men of Jabesh-gilead who took Saul's body down from the walls of Beth-shan and buried it under an oak tree in Jabesh-gilead ([[Old Testament/1 Chronicles/1 Chronicles 10#^verse-11|1 Chr. 10:11-12]]).
+
+[[Study Helps/Bible Dictionary/Ithamar|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jachin and Boaz|Next Entry]]

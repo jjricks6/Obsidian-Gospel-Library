@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Agrippa|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ahasuerus|Next Entry]]
+
+ (1) Son of Omri, and the most wicked and most powerful of the kings of northern Israel; he married Jezebel, a Sidonian princess, through whose influence the worship of Baal and Asherah was established in Israel ([[Old Testament/1 Kings/1 Kings 16#^verse-32|1 Kgs. 16:32-33]]; [[Old Testament/2 Kings/2 Kings 3#^verse-2|2 Kgs. 3:2]]); and an attempt was made to exterminate the prophets and the worship of Jehovah ([[Old Testament/1 Kings/1 Kings 18#^verse-13|1 Kgs. 18:13]]). We have another instance of Jezebel's evil influence over Ahab in the story of Naboth ([[Old Testament/1 Kings/1 Kings 21|1 Kgs. 21]]). During Ahab's reign the kingdom of Israel was politically strong. After a struggle with Benhadad, king of Syria, in which Ahab was successful ([[Old Testament/1 Kings/1 Kings 20|1 Kgs. 20]]), Israel and Syria made an alliance for the purpose of opposing Assyria. We learn from Assyrian inscriptions that the united forces were defeated by Shalmaneser â¢, and Ahab then made an alliance with Jehoshaphat, king of Judah, against Syria and was killed while attempting to capture Ramoth-gilead ([[Old Testament/1 Kings/1 Kings 22|1 Kgs. 22]]; [[Old Testament/2 Chronicles/2 Chronicles 18|2 Chr. 18]]).
+
+ (2) A lying prophet ([[Old Testament/Jeremiah/Jeremiah 29#^verse-21|Jer. 29:21]]).
+
+[[Study Helps/Bible Dictionary/Agrippa|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ahasuerus|Next Entry]]

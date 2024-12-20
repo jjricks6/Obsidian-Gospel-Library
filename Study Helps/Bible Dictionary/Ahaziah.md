@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Ahaz|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ahijah|Next Entry]]
+
+ The Lord upholds. (1) King of Israel; the chief events of his reign were his joint maritime expedition with Jehoshaphat ([[Old Testament/2 Chronicles/2 Chronicles 20#^verse-35|2 Chr. 20:35-37]]) and the revolt of Moab (see [[Study Helps/Bible Dictionary/Moabite Stone|Moabite Stone]]) ([[Old Testament/2 Kings/2 Kings 1#^verse-2|2 Kgs. 1:2]]; [[Old Testament/2 Kings/2 Kings 3#^verse-4|3:4-5]]; see also [[Old Testament/1 Kings/1 Kings 22#^verse-40|1 Kgs. 22:40, 49-53]]; [[Old Testament/2 Kings/2 Kings 1|2 Kgs. 1]]).
+
+ (2) King of Judah; joined Jehoram, king of Israel, in his attempt to recover Ramoth-gilead; was wounded in Samaria; and died at Megiddo ([[Old Testament/2 Kings/2 Kings 8#^verse-25|2 Kgs. 8:25-29]]; [[Old Testament/2 Kings/2 Kings 9#^verse-16|9:16-29]]; [[Old Testament/2 Kings/2 Kings 10#^verse-13|10:13]]; [[Old Testament/2 Kings/2 Kings 12#^verse-18|12:18]]; [[Old Testament/1 Chronicles/1 Chronicles 3#^verse-11|1 Chr. 3:11]]; [[Old Testament/2 Chronicles/2 Chronicles 22#^verse-1|2 Chr. 22:1-11]]); called Azariah ([[Old Testament/2 Chronicles/2 Chronicles 22#^verse-6|2 Chr. 22:6]]) and Jehoahaz ([[Old Testament/2 Chronicles/2 Chronicles 21#^verse-17|2 Chr. 21:17]]).
+
+[[Study Helps/Bible Dictionary/Ahaz|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Ahijah|Next Entry]]

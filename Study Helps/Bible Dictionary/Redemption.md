@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Recorder|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Red Sea|Next Entry]]
+
+ Of the firstborn, see [[Study Helps/Bible Dictionary/Firstborn|Firstborn]]; of land, see [[Study Helps/Bible Dictionary/Jubilee, Year of|Jubilee, Year of]]; of a slave, [[Old Testament/Leviticus/Leviticus 25#^verse-48|Lev. 25:48]]. The word is of constant use in the New Testament in speaking of the sacrificial work of Jesus Christ and our deliverance from sin. He redeemed us with His blood ([[New Testament/Acts/Acts 20#^verse-28|Acts 20:28]]; [[New Testament/Ephesians/Ephesians 1#^verse-7|Eph. 1:7, 14]]; [[New Testament/Colossians/Colossians 1#^verse-14|Col. 1:14]]; [[New Testament/Hebrews/Hebrews 9#^verse-11|Heb. 9:11-15]]; [[New Testament/1 Peter/1 Peter 1#^verse-18|1 Pet. 1:18-19]]; [[New Testament/1 Peter/1 Peter 3#^verse-18|3:18]]; [[New Testament/Revelation/Revelation 5#^verse-9|Rev. 5:9]]).
+
+[[Study Helps/Bible Dictionary/Recorder|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Red Sea|Next Entry]]

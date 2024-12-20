@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Chemosh|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Chinnereth, -roth|Next Entry]]
+
+ Figures representing heavenly creatures, the exact form being unknown. They are found in the Holy of Holies, on the Mercy Seat of the Ark ([[Old Testament/Exodus/Exodus 25#^verse-18|Ex. 25:18, 22]]; [[Old Testament/1 Kings/1 Kings 6#^verse-23|1 Kgs. 6:23-28]]; [[New Testament/Hebrews/Hebrews 9#^verse-5|Heb. 9:5]]), and in the visions of Ezekiel ([[Old Testament/Ezekiel/Ezekiel 10|Ezek. 10]]; [[Old Testament/Ezekiel/Ezekiel 11#^verse-22|11:22]]). In the account of the Fall, cherubim are represented as keeping "the way of the tree of life" ([[Old Testament/Genesis/Genesis 3#^verse-24|Gen. 3:24]]).
+
+[[Study Helps/Bible Dictionary/Chemosh|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Chinnereth, -roth|Next Entry]]

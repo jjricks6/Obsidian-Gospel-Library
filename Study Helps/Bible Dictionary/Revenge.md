@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Revelation of John|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rezin|Next Entry]]
+
+ For the law about Revenger of blood, see [[Old Testament/Numbers/Numbers 35#^verse-12|Num. 35:12, 19-27]]; [[Old Testament/Deuteronomy/Deuteronomy 19#^verse-6|Deut. 19:6, 12]]; [[Old Testament/Joshua/Joshua 20#^verse-3|Josh. 20:3, 5]]; [[Old Testament/2 Samuel/2 Samuel 14#^verse-7|2 Sam. 14:7-11]]. For instances in which revenge was forbidden, see [[Old Testament/Exodus/Exodus 23#^verse-5|Ex. 23:5]]; [[Old Testament/Leviticus/Leviticus 19#^verse-18|Lev. 19:18]]. For the New Testament teaching see [[New Testament/Matthew/Matthew 5#^verse-39|Matt. 5:39, 44]]; [[New Testament/Romans/Romans 12#^verse-17|Rom. 12:17, 19]]; [[New Testament/1 Corinthians/1 Corinthians 4#^verse-12|1 Cor. 4:12]]; [[New Testament/1 Thessalonians/1 Thessalonians 5#^verse-15|1 Thes. 5:15]]; [[New Testament/1 Peter/1 Peter 3#^verse-9|1 Pet. 3:9]]. See also [[Study Helps/Bible Dictionary/Retaliation, law of, or lex talionis|Retaliation, law of]].
+
+[[Study Helps/Bible Dictionary/Revelation of John|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rezin|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Idumea|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Incense|Next Entry]]
+
+ God with us. Also spelled Emmanuel. A name-title given in [[Old Testament/Isaiah/Isaiah 7#^verse-14|Isa. 7:14]] and [[Old Testament/Isaiah/Isaiah 8#^verse-8|8:8]] as a sign of God's deliverance. Alluded to in [[Old Testament/Micah/Micah 5#^verse-2|Micah 5:2-3]]. Specifically identified by Matthew ([[New Testament/Matthew/Matthew 1#^verse-18|Matt. 1:18-25]]) as a prophecy of Jesus' birth into mortality. It signifies that Christ as God will be born into mortality of a virgin and will be among the people to save and redeem them. This prophecy received its fulfillment in Christ. The name appears in latter-day revelation in [[Book of Mormon/2 Nephi/2 Nephi 17#^verse-14|2 Ne. 17:14]]; [[Book of Mormon/2 Nephi/2 Nephi 18#^verse-8|18:8]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 128#^verse-22|D&C 128:22]].
+
+[[Study Helps/Bible Dictionary/Idumea|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Incense|Next Entry]]

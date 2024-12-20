@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Asenath|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Asher|Next Entry]]
+
+ The Arabic Esdud, seat of the worship of Dagon ([[Old Testament/1 Samuel/1 Samuel 5#^verse-1|1 Sam. 5:1-9]]). Though allotted to Judah ([[Old Testament/Joshua/Joshua 15#^verse-46|Josh. 15:46-47]]) and occasionally held by kings of Judah ([[Old Testament/2 Chronicles/2 Chronicles 26#^verse-6|2 Chr. 26:6]]), it remained a Philistine city ([[Old Testament/Nehemiah/Nehemiah 4#^verse-7|Neh. 4:7]]; [[Old Testament/Amos/Amos 1#^verse-8|Amos 1:8]]). It was on the main route from Egypt to Phoenicia, midway between Gaza and Joppa. See [[Study Helps/Bible Dictionary/Philistines|Philistines]].
+
+[[Study Helps/Bible Dictionary/Asenath|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Asher|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Festus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Fig tree|Next Entry]]
+
+ Snakes marked with flamelike spots, or whose bite caused acute inflammation ([[Old Testament/Numbers/Numbers 21#^verse-6|Num. 21:6]]). The Lord sent these upon the children of Israel to "straiten them," and He prepared a way that those who were bitten might be healed by looking at the serpent of brass that Moses raised up before them, which was a symbol of the Redeemer being lifted upon the cross ([[New Testament/John/John 3#^verse-14|John 3:14-15]]). The event is confirmed in latter-day revelation ([[Book of Mormon/1 Nephi/1 Nephi 17#^verse-41|1 Ne. 17:41]]; [[Book of Mormon/2 Nephi/2 Nephi 25#^verse-20|2 Ne. 25:20]]). See also [[Study Helps/Bible Dictionary/Serpent, brazen|Serpent, brazen]].
+
+[[Study Helps/Bible Dictionary/Festus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Fig tree|Next Entry]]

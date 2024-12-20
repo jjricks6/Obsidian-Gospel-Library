@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Old Testament|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Olive tree|Next Entry]]
+
+ A limestone hill east of Jerusalem, with the Kidron valley lying between. On its western side lay the garden of Gethsemane, and on the east, Bethphage and Bethany. This mount not only was the place of many happenings in biblical times, but shall also be prominent in events of the latter days and the Messiah's Second Coming ([[Old Testament/Zechariah/Zechariah 14#^verse-4|Zech. 14:4-5]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 45#^verse-48|D&C 45:48]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 133#^verse-20|133:20]]).
+
+[[Study Helps/Bible Dictionary/Old Testament|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Olive tree|Next Entry]]

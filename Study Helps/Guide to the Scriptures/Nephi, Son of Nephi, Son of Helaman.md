@@ -1,0 +1,17 @@
+[[Study Helps/Guide to the Scriptures/Nephi, Son of Lehi|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Nephite Disciples|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Disciple|Disciple]]; [[Study Helps/Guide to the Scriptures/Nephi, Son of Helaman|Nephi, Son of Helaman]]
+
+ One of the twelve Nephite disciples chosen by the resurrected Jesus Christ in the Book of Mormon ([[Book of Mormon/3 Nephi/3 Nephi 1#^verse-2|3 Ne. 1:2-3]]; [[Book of Mormon/3 Nephi/3 Nephi 19#^verse-4|19:4]]). This prophet prayed mightily to the Lord in behalf of his people. Nephi heard the voice of the Lord ([[Book of Mormon/3 Nephi/3 Nephi 1#^verse-11|3 Ne. 1:11-14]]). Nephi was also visited by angels, cast out devils, raised his brother from the dead, and bore a testimony that could not be disbelieved ([[Book of Mormon/3 Nephi/3 Nephi 7#^verse-15|3 Ne. 7:15-19]]; [[Book of Mormon/3 Nephi/3 Nephi 19#^verse-4|19:4]]). Nephi kept the scriptural record ([[Book of Mormon/3 Nephi/3 Nephi 1#^verse-2|3 Ne. 1:2-3]]).
+
+## The book of 3Â Nephi
+
+ A book written by Nephi, son of Nephi, in the Book of Mormon. [[Book of Mormon/3 Nephi/3 Nephi 1|Chapters 1-10]] show the fulfillment of the prophecies about the coming of the Lord. The sign of Christ's birth was given; the people repented; but then they returned to wickedness. Finally tempests, earthquakes, violent storms, and great destruction signaled the death of Christ. [[Book of Mormon/3 Nephi/3 Nephi 11|Chapters 11-28]] record Christ's coming to the Americas. This is the central part of the book of 3 Nephi. Many of Christ's words are similar to His sermons recorded in the Bible (for example, [[New Testament/Matthew/Matthew 5|Matt. 5-7]] and [[Book of Mormon/3 Nephi/3 Nephi 12|3 Ne. 12-14]]). [[Book of Mormon/3 Nephi/3 Nephi 29|Chapters 29-30]] are Mormon's words to the latter-day nations.
+
+## The book of 4Â Nephi
+
+ This book has only forty-nine verses, all in one chapter, yet it covers nearly three hundred years of Nephite history (A.D. 34-321). Several generations of writers, including Nephi, contributed to the record. [[Book of Mormon/4 Nephi#^verse-1|Verses 1-19]] tell that after the resurrected Christ's visit all the Nephites and Lamanites were converted to the gospel. Peace, love, and harmony reigned. The three Nephite disciples, whom Christ had allowed to remain on earth until His Second Coming ([[Book of Mormon/3 Nephi/3 Nephi 28#^verse-4|3 Ne. 28:4-9]]), ministered to the people. Nephi left the record to his son Amos. [[Book of Mormon/4 Nephi#^verse-19|Verses 19-47]] are the record of Amos's ministry (84 years) and that of his son Amos (112 years). In A.D. 201, pride began to cause problems among the people, who divided themselves into classes and began false churches to get gain ([[Book of Mormon/4 Nephi#^verse-24|4 Ne. 1:24-34]]).
+
+ The final verses of 4 Nephi show that the people had returned again to wickedness ([[Book of Mormon/4 Nephi#^verse-35|4 Ne. 1:35-49]]). In A.D. 305, Amos the son of Amos died and his brother Ammaron hid all the sacred records for safekeeping. Ammaron later entrusted the records to Mormon, who recorded many events of his own lifetime and then abridged them ([[Book of Mormon/Mormon/Mormon 1#^verse-2|Morm. 1:2-4]]).
+
+[[Study Helps/Guide to the Scriptures/Nephi, Son of Lehi|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Nephite Disciples|Next Entry]]

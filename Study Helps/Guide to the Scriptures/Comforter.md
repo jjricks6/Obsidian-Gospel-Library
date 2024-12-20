@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Come|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Commandments, the Ten|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Holy Ghost|Holy Ghost]]; [[Study Helps/Guide to the Scriptures/Jesus Christ|Jesus Christ]]
+
+ The scriptures speak of two Comforters. The first is the Holy Ghost ([[New Testament/John/John 14#^verse-26|John 14:26-27]]; [[Book of Mormon/Moroni/Moroni 8#^verse-26|Moro. 8:26]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 21#^verse-9|D&C 21:9]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 42#^verse-17|42:17]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 90#^verse-11|90:11]]). The Second Comforter is the Lord Jesus Christ ([[New Testament/John/John 14#^verse-18|John 14:18, 21, 23]]). When someone obtains the Second Comforter, Jesus Christ will appear to him from time to time, will reveal the Father, and will teach him face to face ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 130#^verse-3|D&C 130:3]]).
+
+[[Study Helps/Guide to the Scriptures/Come|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Commandments, the Ten|Next Entry]]

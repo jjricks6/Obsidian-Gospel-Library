@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Rye or rie|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sabbath|Next Entry]]
+
+ Hosts. The Lord of Sabaoth was a title of Jehovah; the hosts were the armies of Israel ([[Old Testament/1 Samuel/1 Samuel 17#^verse-45|1 Sam. 17:45]]) but also included the angelic armies of heaven ([[Old Testament/Judges/Judges 5#^verse-20|Judg. 5:20]]; [[Old Testament/2 Kings/2 Kings 6#^verse-17|2 Kgs. 6:17]]; [[New Testament/Romans/Romans 9#^verse-29|Rom. 9:29]]; [[New Testament/James/James 5#^verse-4|James 5:4]]; see also [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 87#^verse-7|D&C 87:7]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 88#^verse-2|88:2]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 95#^verse-7|95:7]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 98#^verse-2|98:2]]).
+
+[[Study Helps/Bible Dictionary/Rye or rie|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Sabbath|Next Entry]]

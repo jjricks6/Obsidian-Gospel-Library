@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Baruch|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bat|Next Entry]]
+
+ The district east of Jordan and north of Gilead, assigned to Manasseh ([[Old Testament/Numbers/Numbers 21#^verse-33|Num. 21:33]]; [[Old Testament/Numbers/Numbers 32#^verse-33|32:33]]; [[Old Testament/Deuteronomy/Deuteronomy 1#^verse-4|Deut. 1:4]]; [[Old Testament/Deuteronomy/Deuteronomy 3#^verse-1|3:1-14]]; [[Old Testament/1 Kings/1 Kings 4#^verse-13|1 Kgs. 4:13]]). It was an area rich in grain production and known for its breed of cattle ([[Old Testament/Psalms/Psalms 22#^verse-12|Ps. 22:12]]), to which Amos made a symbolic and uncomplimentary reference ([[Old Testament/Amos/Amos 4#^verse-1|Amos 4:1-3]]).
+
+[[Study Helps/Bible Dictionary/Baruch|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bat|Next Entry]]

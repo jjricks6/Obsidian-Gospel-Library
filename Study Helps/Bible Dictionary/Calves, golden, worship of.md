@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Calvary|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Camel|Next Entry]]
+
+ The form that Israelite idolatry took in the wilderness ([[Old Testament/Exodus/Exodus 32#^verse-4|Ex. 32:4]]; [[Old Testament/Deuteronomy/Deuteronomy 9#^verse-12|Deut. 9:12-21]]), and later on under Jeroboam and his successors ([[Old Testament/1 Kings/1 Kings 12#^verse-28|1 Kgs. 12:28, 32-33]]; [[Old Testament/2 Kings/2 Kings 10#^verse-29|2 Kgs. 10:29]]; [[Old Testament/2 Chronicles/2 Chronicles 11#^verse-15|2 Chr. 11:15]]; [[Old Testament/2 Chronicles/2 Chronicles 13#^verse-8|13:8]]; [[Old Testament/Hosea/Hosea 8#^verse-5|Hosea 8:5-6]]; [[Old Testament/Hosea/Hosea 13#^verse-2|13:2]]). Under this symbol they professed to worship Jehovah, but such worship naturally soon degenerated into a worship of the image itself.
+
+[[Study Helps/Bible Dictionary/Calvary|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Camel|Next Entry]]

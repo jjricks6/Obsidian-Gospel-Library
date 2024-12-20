@@ -1,0 +1,9 @@
+[[Study Helps/Index to the Triple Combination/Adversary|Previous Entry]]  ||  [[Study Helps/Index to the Triple Combination/Advocate|Next Entry]]
+
+ See also [[Study Helps/Index to the Triple Combination/Affliction|Affliction]]; [[Study Helps/Index to the Triple Combination/Experience|Experience]]; [[Study Helps/Index to the Triple Combination/Infirmity|Infirmity]]; [[Study Helps/Index to the Triple Combination/Opposition, Opposite|Opposition]]; [[Study Helps/Index to the Triple Combination/Oppression, Oppress|Oppression]]; [[Study Helps/Index to the Triple Combination/Patience, Patient, Patiently|Patience]]; [[Study Helps/Index to the Triple Combination/Persecution, Persecute|Persecution]]; [[Study Helps/Index to the Triple Combination/Sorrow, Sorrowful, Sorrowing|Sorrow]]; [[Study Helps/Index to the Triple Combination/Suffering, Suffer|Suffering]]; [[Study Helps/Index to the Triple Combination/Tear [verb]|Tear [verb]]]; [[Study Helps/Index to the Triple Combination/Tempt, Temptation|Tempt]]; [[Study Helps/Index to the Triple Combination/Trial, Try|Trial]]; [[Study Helps/Index to the Triple Combination/Tribulation|Tribulation]]; [[Study Helps/Index to the Triple Combination/Wind|Wind]]
+
+ adversity shall be but small moment, [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 121#^verse-7|D&C 121:7]].
+
+ adversity gives experience, [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 122#^verse-7|D&C 122:7]].
+
+[[Study Helps/Index to the Triple Combination/Adversary|Previous Entry]]  ||  [[Study Helps/Index to the Triple Combination/Advocate|Next Entry]]

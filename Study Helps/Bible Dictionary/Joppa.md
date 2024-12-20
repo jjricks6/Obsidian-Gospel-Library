@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Jonathan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jordan River|Next Entry]]
+
+ (Modern Jaffa.) A town on the southwest coast of Palestine, the nearest port to Jerusalem (called "Japho" in [[Old Testament/Joshua/Joshua 19#^verse-46|Josh. 19:46]]). It became a place of importance as a harbor in Solomon's reign ([[Old Testament/2 Chronicles/2 Chronicles 2#^verse-16|2 Chr. 2:16]]; see also [[Old Testament/Ezra/Ezra 3#^verse-7|Ezra 3:7]]; [[Old Testament/Jonah/Jonah 1#^verse-3|Jonah 1:3]]; [[New Testament/Acts/Acts 9#^verse-36|Acts 9:36-43]]; [[New Testament/Acts/Acts 10#^verse-5|10:5, 8, 23, 32]]; [[New Testament/Acts/Acts 11#^verse-5|11:5]]). In New Testament times it was the only town on the coast that was more Jewish than Gentile.
+
+[[Study Helps/Bible Dictionary/Jonathan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jordan River|Next Entry]]

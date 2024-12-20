@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Rabbah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rabboni|Next Entry]]
+
+ My master. Jewish title for a teacher, first used in time of Herod the Great; given to Christ ([[New Testament/Matthew/Matthew 26#^verse-25|Matt. 26:25, 49]]; [[New Testament/Mark/Mark 9#^verse-5|Mark 9:5]]; [[New Testament/Mark/Mark 11#^verse-21|11:21]]; [[New Testament/Mark/Mark 14#^verse-45|14:45]]; [[New Testament/John/John 1#^verse-38|John 1:38, 49]]; [[New Testament/John/John 3#^verse-2|3:2, 26]]; [[New Testament/John/John 4#^verse-31|4:31]]; [[New Testament/John/John 6#^verse-25|6:25]]; [[New Testament/John/John 9#^verse-2|9:2]]; [[New Testament/John/John 11#^verse-8|11:8]]). See also [[New Testament/Matthew/Matthew 23#^verse-7|Matt. 23:7-8]].
+
+[[Study Helps/Bible Dictionary/Rabbah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Rabboni|Next Entry]]

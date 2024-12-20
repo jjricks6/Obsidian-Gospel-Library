@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Juda|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Judah, Kingdom of|Next Entry]]
+
+ Fourth son of Jacob and Leah ([[Old Testament/Genesis/Genesis 29#^verse-35|Gen. 29:35]]; [[Old Testament/Genesis/Genesis 37#^verse-26|37:26-27]]; [[Old Testament/Genesis/Genesis 43#^verse-3|43:3, 8]]; [[Old Testament/Genesis/Genesis 44#^verse-16|44:16]]; [[Old Testament/Genesis/Genesis 49#^verse-8|49:8-12]]; [[Old Testament/Deuteronomy/Deuteronomy 33#^verse-7|Deut. 33:7]]). From these passages we see that he was a natural leader among the sons of Jacob, and the tribe descended from him took the lead after the settlement in Canaan, its chief rival being Ephraim.
+
+[[Study Helps/Bible Dictionary/Juda|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Judah, Kingdom of|Next Entry]]

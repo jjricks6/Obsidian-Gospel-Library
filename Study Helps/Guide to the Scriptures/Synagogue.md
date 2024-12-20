@@ -1,0 +1,11 @@
+[[Study Helps/Guide to the Scriptures/Symbolism|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Tabernacle|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Jews|Jews]]
+
+ A meetingplace used for religious purposes. In New Testament times, the furniture generally was simple, consisting of an ark containing the rolls of the law and other sacred writings, a reading desk, and seats for the worshipers.
+
+ A local council of elders managed each synagogue. They decided who should be admitted and who should be excluded ([[New Testament/John/John 9#^verse-22|John 9:22]]; [[New Testament/John/John 12#^verse-42|12:42]]). The most important official was the ruler of the synagogue ([[New Testament/Mark/Mark 5#^verse-22|Mark 5:22]]; [[New Testament/Luke/Luke 13#^verse-14|Luke 13:14]]). He generally was a scribe, had care of the building, and supervised the services. An attendant performed clerical duties ([[New Testament/Luke/Luke 4#^verse-20|Luke 4:20]]).
+
+ There was a synagogue in every town where Jews were living, both in Palestine and elsewhere. This was a great help in spreading the gospel of Jesus Christ because early missionaries of the Church usually could speak in the synagogues ([[New Testament/Acts/Acts 13#^verse-5|Acts 13:5, 14]]; [[New Testament/Acts/Acts 14#^verse-1|14:1]]; [[New Testament/Acts/Acts 17#^verse-1|17:1, 10]]; [[New Testament/Acts/Acts 18#^verse-4|18:4]]). This same practice existed among missionaries in the Book of Mormon ([[Book of Mormon/Alma/Alma 16#^verse-13|Alma 16:13]]; [[Book of Mormon/Alma/Alma 21#^verse-4|21:4-5]]; [[Book of Mormon/Alma/Alma 32#^verse-1|32:1]]) as well as among early missionaries in this dispensation ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 66#^verse-7|D&C 66:7]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 68#^verse-1|68:1]]).
+
+[[Study Helps/Guide to the Scriptures/Symbolism|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Tabernacle|Next Entry]]

@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Cyrus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Daily service|Next Entry]]
+
+ Fish. The god of the Philistines ([[Old Testament/Judges/Judges 16#^verse-23|Judg. 16:23]]; [[Old Testament/1 Samuel/1 Samuel 5#^verse-2|1 Sam. 5:2]]). There were temples of Dagon at Gaza and Ashdod; the latter was destroyed by Jonathan the Hasmonean. His image was in the form partly of a man and partly of a fish. Some writers, however, question whether Dagon was really a fish-god and connect the name with dagan, "grain."
+
+ Three Old Testament incidents have somewhat to do with the worship of Dagon. A Philistine temple at Gaza was the place of Samson's death ([[Old Testament/Judges/Judges 16#^verse-23|Judg. 16:23-30]]); at Ashdod the Philistines were killed when the Ark of the Covenant was carried into the temple of Dagon ([[Old Testament/1 Samuel/1 Samuel 5#^verse-1|1 Sam. 5:1-7]]); and at Beth-shan, after a battle between the Philistines and Israel at Mount Gilboa, the head of King Saul was placed in the temple of Dagon ([[Old Testament/1 Chronicles/1 Chronicles 10#^verse-10|1 Chr. 10:10]]).
+
+[[Study Helps/Bible Dictionary/Cyrus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Daily service|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Joseph, Stick of|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Joseph Smith Jr.|Next Entry]]
+
+ Joseph of Arimathea was a member of the Sanhedrin, a disciple of Christ, and a rich and faithful Israelite who took no part in the condemnation of our Lord. After the Crucifixion, Joseph had the Savior's body wrapped in a clean linen cloth and laid Him in Joseph's own cavelike tomb ([[New Testament/Matthew/Matthew 27#^verse-57|Matt. 27:57-60]]; [[New Testament/Mark/Mark 15#^verse-43|Mark 15:43-46]]; [[New Testament/Luke/Luke 23#^verse-50|Luke 23:50-53]]; [[New Testament/John/John 19#^verse-38|John 19:38-42]]).
+
+[[Study Helps/Guide to the Scriptures/Joseph, Stick of|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Joseph Smith Jr.|Next Entry]]

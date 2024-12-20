@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Bethsaida|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Beth-shemesh|Next Entry]]
+
+ House of safety. Three miles from the Jordan River on the edge of the plain of Jezreel, on the road from Damascus to Egypt, and to Jerusalem via Shechem ([[Old Testament/Joshua/Joshua 17#^verse-11|Josh. 17:11, 16]]; [[Old Testament/Judges/Judges 1#^verse-27|Judg. 1:27]]; [[Old Testament/1 Samuel/1 Samuel 31#^verse-10|1 Sam. 31:10, 12]]; [[Old Testament/2 Samuel/2 Samuel 21#^verse-12|2 Sam. 21:12]]; [[Old Testament/1 Kings/1 Kings 4#^verse-12|1 Kgs. 4:12]]; [[Old Testament/1 Chronicles/1 Chronicles 7#^verse-29|1 Chr. 7:29]]). It was at Beth-shan that the dead bodies of Saul and three of his sons were fastened to the city wall ([[Old Testament/1 Samuel/1 Samuel 31#^verse-10|1 Sam. 31:10-13]]). It was afterwards known as Scythopolis and in our Lord's time was one of the cities of Decapolis. Beth-shan has been an extremely fruitful archaeological site, containing Egyptian and Canaanite ruins of early Palestinian history.
+
+[[Study Helps/Bible Dictionary/Bethsaida|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Beth-shemesh|Next Entry]]

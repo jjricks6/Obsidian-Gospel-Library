@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Olives, Mount of, or Olivet|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Omega|Next Entry]]
+
+ The well-known Olea europea. It is extensively cultivated in Palestine for the sake of the oil. The olive requires being grafted; hence Paul's allusion to the Gentiles ([[New Testament/Romans/Romans 11#^verse-17|Rom. 11:17-24]]); but what he describes is the reverse of the ordinary gardening operation and is therefore spoken of as "contrary to nature" ([[New Testament/Romans/Romans 11#^verse-24|verse 24]]). Using the olive tree in an allegorical sense to illustrate Israel and the Gentiles is also done by Zenos, as quoted by [[Book of Mormon/Jacob/Jacob 5|Jacob 5]]. Isaiah uses the illustration of a grape vine for the same purpose ([[Old Testament/Isaiah/Isaiah 5#^verse-1|Isa. 5:1-7]]).
+
+[[Study Helps/Bible Dictionary/Olives, Mount of, or Olivet|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Omega|Next Entry]]

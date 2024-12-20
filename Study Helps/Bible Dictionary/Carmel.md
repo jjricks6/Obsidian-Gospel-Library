@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Carchemish|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Carriage|Next Entry]]
+
+ Garden or park. (1) A hill, 1742 feet high, forming the one headland of the coast of Palestine. It is chiefly known in connection with the history of Elijah and Elisha ([[Old Testament/1 Kings/1 Kings 18|1 Kgs. 18]]; [[Old Testament/2 Kings/2 Kings 2#^verse-25|2 Kgs. 2:25]]; [[Old Testament/2 Kings/2 Kings 4#^verse-25|4:25]]); also frequently mentioned by prophets ([[Old Testament/Isaiah/Isaiah 33#^verse-9|Isa. 33:9]]; [[Old Testament/Isaiah/Isaiah 35#^verse-2|35:2]]; [[Old Testament/Jeremiah/Jeremiah 46#^verse-18|Jer. 46:18]]; [[Old Testament/Jeremiah/Jeremiah 50#^verse-19|50:19]]; [[Old Testament/Amos/Amos 1#^verse-2|Amos 1:2]]; [[Old Testament/Amos/Amos 9#^verse-3|9:3]]; [[Old Testament/Micah/Micah 7#^verse-14|Micah 7:14]]; [[Old Testament/Nahum/Nahum 1#^verse-4|Nahum 1:4]]).
+
+ (2) A town in the hill country of Judah ([[Old Testament/Joshua/Joshua 15#^verse-55|Josh. 15:55]]; [[Old Testament/1 Samuel/1 Samuel 15#^verse-12|1 Sam. 15:12]]); residence of Nabal ([[Old Testament/1 Samuel/1 Samuel 25|1 Sam. 25]]); and native place of David's wife Abigail ([[Old Testament/1 Samuel/1 Samuel 27#^verse-3|1 Sam. 27:3]]).
+
+[[Study Helps/Bible Dictionary/Carchemish|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Carriage|Next Entry]]

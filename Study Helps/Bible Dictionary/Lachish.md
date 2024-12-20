@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Laban|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Lamb of God|Next Entry]]
+
+ A city of the Amorites, between Hebron and the coast ([[Old Testament/Joshua/Joshua 10#^verse-3|Josh. 10:3, 5, 23, 31-35]]; [[Old Testament/Joshua/Joshua 12#^verse-11|12:11]]); afterwards included in Judah ([[Old Testament/Joshua/Joshua 15#^verse-39|15:39]]); fortified by Rehoboam ([[Old Testament/2 Chronicles/2 Chronicles 11#^verse-9|2 Chr. 11:9]]); here Amaziah was killed ([[Old Testament/2 Kings/2 Kings 14#^verse-19|2 Kgs. 14:19]]; [[Old Testament/2 Chronicles/2 Chronicles 25#^verse-27|2 Chr. 25:27]]). It was captured by Sennacherib ([[Old Testament/2 Kings/2 Kings 18#^verse-17|2 Kgs. 18:17]]; [[Old Testament/2 Chronicles/2 Chronicles 32#^verse-9|2 Chr. 32:9]]), and the siege is depicted on an Assyrian monument still in existence. After the Return Lachish was again occupied by Jews ([[Old Testament/Nehemiah/Nehemiah 11#^verse-30|Neh. 11:30]]).
+
+[[Study Helps/Bible Dictionary/Laban|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Lamb of God|Next Entry]]

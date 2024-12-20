@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Gaius|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Galatians, Epistle to|Next Entry]]
+
+ A district in the center of Asia Minor, inhabited by tribes from Gaul who settled there in the 3rd century B.C. (Galatia was also the Greek name for Gallia, or Gaul.) It was visited by Paul on his second and third journeys ([[New Testament/Acts/Acts 16#^verse-6|Acts 16:6]]; [[New Testament/Acts/Acts 18#^verse-23|18:23]]). Some scholars think that Paul and Luke regarded the cities of Antioch, Iconium, Lystra, and Derbe, visited by Paul on his first journey, as part of Galatia, and that it was to these towns that the epistle to the Galatians was addressed. They formed (with the exception of Iconium) part of the Roman province of Galatia but in popular speech were generally regarded as belonging to Pisidia or Lycaonia.
+
+[[Study Helps/Bible Dictionary/Gaius|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Galatians, Epistle to|Next Entry]]

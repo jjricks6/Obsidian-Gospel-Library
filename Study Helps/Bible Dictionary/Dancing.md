@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Dan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Daniel|Next Entry]]
+
+ A natural sign of rejoicing, and as such frequently formed part of religious ceremonies ([[Old Testament/Exodus/Exodus 15#^verse-20|Ex. 15:20]]; [[Old Testament/Exodus/Exodus 32#^verse-19|32:19]]; [[Old Testament/Judges/Judges 11#^verse-34|Judg. 11:34]]; [[Old Testament/2 Samuel/2 Samuel 6#^verse-14|2 Sam. 6:14-16]]; [[Old Testament/1 Chronicles/1 Chronicles 15#^verse-29|1 Chr. 15:29]]). The dancing was often accompanied by a song with chorus and instrumental music ([[Old Testament/Psalms/Psalms 68#^verse-25|Ps. 68:25]]; [[Old Testament/Psalms/Psalms 149#^verse-3|149:3]]; [[Old Testament/Psalms/Psalms 150#^verse-4|150:4]]).
+
+[[Study Helps/Bible Dictionary/Dan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Daniel|Next Entry]]

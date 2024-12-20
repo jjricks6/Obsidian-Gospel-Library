@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Lord of Hosts, or Lord of Sabaoth|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Lord's Prayer|Next Entry]]
+
+ Occurs in the Bible only in [[New Testament/Revelation/Revelation 1#^verse-10|Rev. 1:10]]. The first day of the week is meant, being the day of our Lord's Resurrection and also the day on which the Holy Spirit came upon the Apostles. References to its weekly observance are found in [[New Testament/Acts/Acts 20#^verse-7|Acts 20:7]]; [[New Testament/1 Corinthians/1 Corinthians 16#^verse-1|1 Cor. 16:1-2]]; and in many early Christian writers. It was never confounded with the Sabbath, but carefully distinguished from it ([[New Testament/Colossians/Colossians 2#^verse-16|Col. 2:16]]). The term is used also in [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 59#^verse-9|D&C 59:9-13]].
+
+[[Study Helps/Bible Dictionary/Lord of Hosts, or Lord of Sabaoth|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Lord's Prayer|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Micah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Michal|Next Entry]]
+
+ Who is like God. Mentioned in [[Old Testament/Daniel/Daniel 10#^verse-13|Dan. 10:13, 21]]; [[Old Testament/Daniel/Daniel 12#^verse-1|12:1]]; [[New Testament/Jude#^verse-9|Jude 1:9]]; [[New Testament/Revelation/Revelation 12#^verse-7|Rev. 12:7]]. He is called the Archangel. Latter-day revelation informs us that Michael is Adam, the Ancient of Days ([[Old Testament/Daniel/Daniel 7|Dan. 7]]), a prince, and the patriarch of the human family ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 27#^verse-11|D&C 27:11]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 107#^verse-53|107:53-56]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 128#^verse-21|128:21]]). See also [[Study Helps/Bible Dictionary/Adam|Adam]].
+
+[[Study Helps/Bible Dictionary/Micah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Michal|Next Entry]]

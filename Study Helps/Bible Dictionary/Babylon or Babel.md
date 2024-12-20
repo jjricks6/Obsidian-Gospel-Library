@@ -1,0 +1,11 @@
+[[Study Helps/Bible Dictionary/Babel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Balaam|Next Entry]]
+
+ The capital of Babylonia. According to [[Old Testament/Genesis/Genesis 10#^verse-8|Gen. 10:8-10]] it was founded by Nimrod and was one of the oldest cities of the land of Shinar; in [[Old Testament/Genesis/Genesis 11#^verse-1|11:1-9]] we have the record of the Tower of Babel and the "Confusion of Tongues." (See [[Book of Mormon/Ether/Ether 1#^verse-3|Ether 1:3-5, 34-35]].) During the Assyrian supremacy (see [[Study Helps/Bible Dictionary/Assyria and Babylonia|Assyria and Babylonia]]) it became part of that empire and was destroyed by Sennacherib. After the downfall of Assyria, Babylon became Nebuchadnezzar's capital. He built an enormous city of which the ruins still remain. The city was square, and the Euphrates ran through the middle of it. According to Herodotus the walls were 56 miles in circumference, 335 feet high, and 85 feet wide. A large part of the city consisted of beautiful parks and gardens. The chief building was the famous temple of Bel. Inscriptions that have been recently deciphered show that the Babylonians had accounts of the Creation and the Deluge in many ways similar to those given in the book of Genesis. Other inscriptions contain accounts of events referred to in the Bible histories of the kingdoms of Israel and Judea and also give valuable information as to the chronology of these periods.
+
+ A sketch of the history of the Babylonian empire will be found under [[Study Helps/Bible Dictionary/Assyria and Babylonia|Assyria and Babylonia]].
+
+ In [[New Testament/Revelation/Revelation 14#^verse-8|Rev. 14:8]]; [[New Testament/Revelation/Revelation 16#^verse-19|16:19]]; [[New Testament/Revelation/Revelation 17#^verse-5|17:5]]; [[New Testament/Revelation/Revelation 18#^verse-2|18:2, 10, 21]], Babylon probably denotes Rome, the great antagonist of Messiah's kingdom; or possibly, apostate Jerusalem. Such a mystical use of the name is quite in accordance with Jewish custom. In [[New Testament/1 Peter/1 Peter 5#^verse-13|1 Pet. 5:13]] Babylon probably referred to Rome.
+
+ In [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 1#^verse-16|D&C 1:16]], Babylon means "the world."
+
+[[Study Helps/Bible Dictionary/Babel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Balaam|Next Entry]]

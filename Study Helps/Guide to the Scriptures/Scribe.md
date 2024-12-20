@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/School of the Prophets|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Scriptures|Next Entry]]
+
+ The Old and New Testaments use the term in slightly different ways: (1) In the Old Testament, the scribe's primary responsibility was to copy the scriptures ([[Old Testament/Jeremiah/Jeremiah 8#^verse-8|Jer. 8:8]]). (2) Scribes are frequently mentioned in the New Testament and are sometimes called lawyers or doctors of the law. They developed the law in detail and applied it to the circumstances of their time ([[New Testament/Matthew/Matthew 13#^verse-52|Matt. 13:52]]; [[New Testament/Mark/Mark 2#^verse-16|Mark 2:16-17]]; [[New Testament/Mark/Mark 11#^verse-17|11:17-18]]; [[New Testament/Luke/Luke 11#^verse-44|Luke 11:44-53]]; [[New Testament/Luke/Luke 20#^verse-46|20:46-47]]).
+
+[[Study Helps/Guide to the Scriptures/School of the Prophets|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Scriptures|Next Entry]]

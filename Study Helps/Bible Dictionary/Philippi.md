@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Philip|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Philippians, Epistle to|Next Entry]]
+
+ A city of Macedonia, founded by Philip, father of Alexander the Great; visited by Paul ([[New Testament/Acts/Acts 16#^verse-12|Acts 16:12-40]]; [[New Testament/Acts/Acts 20#^verse-6|20:6]]; see also [[New Testament/Philippians/Philippians 1#^verse-1|Philip. 1:1]]; [[New Testament/1 Thessalonians/1 Thessalonians 2#^verse-2|1 Thes. 2:2]]). It is described as a Roman "colony"; it contained a body of Roman citizens, placed there for military purposes, governed directly from Rome and independent of provincial governors and local magistrates. The church there was mainly gentile, there being no Jewish synagogue. Paul's visit was memorable for his assertion of his rights as a Roman citizen ([[New Testament/Acts/Acts 16#^verse-37|Acts 16:37]]). The converts were afterwards generous in their contributions toward his support ([[New Testament/Philippians/Philippians 4#^verse-15|Philip. 4:15]]).
+
+[[Study Helps/Bible Dictionary/Philip|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Philippians, Epistle to|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Nathan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Nazarene|Next Entry]]
+
+ God has given. His friendship with Philip and call to be a disciple are found in [[New Testament/John/John 1#^verse-45|John 1:45-51]]; see also [[New Testament/John/John 21#^verse-2|21:2]], where we learn that he belonged to Cana in Galilee. He is generally identified with Bartholomew, on the ground that Nathanael is always mentioned along with Apostles, as though of apostolic rank, and that whereas the Synoptists ([[New Testament/Matthew/Matthew 10#^verse-3|Matt. 10:3]]; [[New Testament/Mark/Mark 3#^verse-18|Mark 3:18]]; [[New Testament/Luke/Luke 6#^verse-14|Luke 6:14]]) mention Bartholomew (associating him with Philip) and never Nathanael, John mentions Nathanael and never Bartholomew.
+
+[[Study Helps/Bible Dictionary/Nathan|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Nazarene|Next Entry]]

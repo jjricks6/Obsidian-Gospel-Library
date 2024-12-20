@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Midian|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Milcom|Next Entry]]
+
+ A powerful confederation of wandering Arab tribes, akin to the Hebrews, but often in conflict with them. They are referred to in [[Old Testament/Genesis/Genesis 37#^verse-28|Gen. 37:28, 36]]; [[Old Testament/Exodus/Exodus 2#^verse-15|Ex. 2:15]]; [[Old Testament/Exodus/Exodus 3#^verse-1|3:1]]; [[Old Testament/Exodus/Exodus 4#^verse-19|4:19]]; [[Old Testament/Exodus/Exodus 18#^verse-1|18:1]]; [[Old Testament/Numbers/Numbers 22#^verse-4|Num. 22:4, 7]]; [[Old Testament/Numbers/Numbers 25|25]]; [[Old Testament/Numbers/Numbers 31|31]]; [[Old Testament/Judges/Judges 6|Judg. 6-8]]; [[Old Testament/Psalms/Psalms 83#^verse-9|Ps. 83:9, 11]]; [[Old Testament/Isaiah/Isaiah 9#^verse-4|Isa. 9:4]]; [[Old Testament/Isaiah/Isaiah 10#^verse-26|10:26]]. See also [[Study Helps/Bible Dictionary/Jethro|Jethro]].
+
+[[Study Helps/Bible Dictionary/Midian|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Milcom|Next Entry]]

@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Ark of the Covenant|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Armor|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Gog|Gog]]; [[Study Helps/Guide to the Scriptures/Magog|Magog]]; [[Study Helps/Guide to the Scriptures/Second Coming of Jesus Christ|Second Coming of Jesus Christ]]
+
+ The name Armageddon is derived from the Hebrew Har Megiddon, meaning the "mountain of Megiddo." The valley of Megiddo is in the western portion of the plain of Esdraelon, fifty miles (eighty kilometers) north of Jerusalem, and is the site of several crucial battles in Old Testament times. A great and final conflict that will take place near the time of the Second Coming of the Lord is called the battle of Armageddon because it will begin in the same locale. (See [[Old Testament/Ezekiel/Ezekiel 39#^verse-11|Ezek. 39:11]]; [[Old Testament/Zechariah/Zechariah 12|Zech. 12-14]], especially [[Old Testament/Zechariah/Zechariah 12#^verse-11|12:11]]; [[New Testament/Revelation/Revelation 16#^verse-14|Rev. 16:14-21]].)
+
+[[Study Helps/Guide to the Scriptures/Ark of the Covenant|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Armor|Next Entry]]

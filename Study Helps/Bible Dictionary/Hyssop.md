@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hypocrite|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Iconium|Next Entry]]
+
+ A kind of wild marjoram, used at the Passover ([[Old Testament/Exodus/Exodus 12#^verse-22|Ex. 12:22]]); for sprinkling purposes in the purification of lepers ([[Old Testament/Leviticus/Leviticus 14#^verse-4|Lev. 14:4, 51]]) and in the sacrifice of the red heifer ([[Old Testament/Numbers/Numbers 19#^verse-6|Num. 19:6]]; see also [[Old Testament/1 Kings/1 Kings 4#^verse-33|1 Kgs. 4:33]]; [[Old Testament/Psalms/Psalms 51#^verse-7|Ps. 51:7]]). According to John ([[New Testament/John/John 19#^verse-29|19:29]]), the sponge with the vinegar offered to our Lord on the cross was "put upon hyssop." Matthew and Mark do not mention the hyssop but only the reed by which it was raised to Jesus' mouth.
+
+[[Study Helps/Bible Dictionary/Hypocrite|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Iconium|Next Entry]]

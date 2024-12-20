@@ -1,0 +1,11 @@
+[[Study Helps/Bible Dictionary/Abomination|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Abraham|Next Entry]]
+
+ Daniel spoke prophetically of a day when there would be "the abomination that maketh desolate" ([[Old Testament/Daniel/Daniel 11#^verse-31|Dan. 11:31]]; [[Old Testament/Daniel/Daniel 12#^verse-11|12:11]]), and the phrase was recoined in New Testament times to say "the abomination of desolation, spoken of by Daniel the prophet" ([[New Testament/Matthew/Matthew 24#^verse-15|Matt. 24:15]]).
+
+ Conditions of desolation, born of abomination and wickedness, were to occur twice in fulfillment of Daniel's words. The first was to be when the Roman legions under Titus, in A.D. 70, laid siege to Jerusalem ([[New Testament/Matthew/Matthew 24#^verse-15|Matt. 24:15]]; [[Pearl of Great Price/Joseph Smith—Matthew#^verse-12|JS—M 1:12]]).
+
+ Speaking of the last days, of the days following the Restoration of the gospel and its declaration "for a witness unto all nations," our Lord said: "And again shall the abomination of desolation, spoken of by Daniel the prophet, be fulfilled" ([[Pearl of Great Price/Joseph Smith—Matthew#^verse-31|JS—M 1:31-32]]). That is, Jerusalem again will be under siege.
+
+ In a general sense, abomination of desolation also describes the latter-day judgments to be poured out upon the wicked wherever they may be. And so that the honest in heart may escape these things, the Lord sends His servants forth to raise the warning voice, to declare the glad tidings of the Restoration, lest "desolation and utter abolishment" come upon them. The elders are commanded to reprove "the world in righteousness of all their unrighteous and ungodly deeds, setting forth clearly and understandingly the desolation of abomination in the last days" ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 84#^verse-114|D&C 84:114, 117]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 88#^verse-84|88:84-85]]).
+
+[[Study Helps/Bible Dictionary/Abomination|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Abraham|Next Entry]]

@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Philistines|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Phoenicia|Next Entry]]
+
+ (1) Grandson of Aaron ([[Old Testament/Exodus/Exodus 6#^verse-25|Ex. 6:25]]); kills the two offenders at Peor ([[Old Testament/Numbers/Numbers 25#^verse-7|Num. 25:7, 11]]; [[Old Testament/Numbers/Numbers 31#^verse-6|31:6]]; [[Old Testament/Psalms/Psalms 106#^verse-30|Ps. 106:30]]); Phinehas and the trans-Jordanic tribes ([[Old Testament/Joshua/Joshua 22#^verse-15|Josh. 22:15, 30-32]]); his home ([[Old Testament/Joshua/Joshua 24#^verse-33|Josh. 24:33]]); high priest ([[Old Testament/Judges/Judges 20#^verse-28|Judg. 20:28]]; [[Old Testament/1 Chronicles/1 Chronicles 6#^verse-4|1 Chr. 6:4, 50]]; [[Old Testament/1 Chronicles/1 Chronicles 9#^verse-20|9:20]]); descendants ([[Old Testament/Ezra/Ezra 7#^verse-5|Ezra 7:5]]; [[Old Testament/Ezra/Ezra 8#^verse-2|8:2, 33]]).
+
+ (2) Son of Eli ([[Old Testament/1 Samuel/1 Samuel 1#^verse-3|1 Sam. 1:3]]; [[Old Testament/1 Samuel/1 Samuel 2#^verse-34|2:34]]; [[Old Testament/1 Samuel/1 Samuel 4#^verse-4|4:4, 11, 17, 19]]).
+
+[[Study Helps/Bible Dictionary/Philistines|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Phoenicia|Next Entry]]

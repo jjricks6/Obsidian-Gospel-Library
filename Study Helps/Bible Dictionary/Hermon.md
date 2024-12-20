@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hephzibah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Herod|Next Entry]]
+
+ A mountain, 9400 feet high, in the extreme northeast of the Holy Land, being the southern point of a range of hills called Anti-Libanus. It is visible not only from a great part of Galilee, but also from various places as far south as Jericho. The Hermonites ([[Old Testament/Psalms/Psalms 42#^verse-6|Ps. 42:6]]) are the three peaks of Mount Hermon. Jewish poetry contains several allusions to this mountain ([[Old Testament/Psalms/Psalms 89#^verse-12|Ps. 89:12]]; [[Old Testament/Psalms/Psalms 133#^verse-3|133:3]]; [[Old Testament/Song of Solomon/Song of Solomon 4#^verse-8|Song 4:8]]). It is possible that our Lord's Transfiguration took place either on Hermon or on Mount Tabor (see [[New Testament/Matthew/Matthew 16#^verse-13|Matt. 16:13-17:2]]).
+
+[[Study Helps/Bible Dictionary/Hephzibah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Herod|Next Entry]]

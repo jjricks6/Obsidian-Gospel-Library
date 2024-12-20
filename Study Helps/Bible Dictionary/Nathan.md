@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Naphtali|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Nathanael|Next Entry]]
+
+ He has given. (1) Son of David and Bathsheba ([[Old Testament/2 Samuel/2 Samuel 5#^verse-14|2 Sam. 5:14]]; [[Old Testament/1 Chronicles/1 Chronicles 3#^verse-5|1 Chr. 3:5]]; [[Old Testament/1 Chronicles/1 Chronicles 14#^verse-4|14:4]]; [[Old Testament/Zechariah/Zechariah 12#^verse-12|Zech. 12:12]]; [[New Testament/Luke/Luke 3#^verse-31|Luke 3:31]]).
+
+ (2) The prophet, forbids David to build a temple ([[Old Testament/2 Samuel/2 Samuel 7|2 Sam. 7]]; [[Old Testament/1 Chronicles/1 Chronicles 17#^verse-1|1 Chr. 17:1-15]]); rebukes him about Bathsheba ([[Old Testament/2 Samuel/2 Samuel 12|2 Sam. 12]]; [[Old Testament/Psalms/Psalms 51|Ps. 51 heading]]); anoints Solomon ([[Old Testament/1 Kings/1 Kings 1#^verse-38|1 Kgs. 1:38-39, 45]]; see also [[Old Testament/2 Chronicles/2 Chronicles 9#^verse-29|2 Chr. 9:29]]; [[Old Testament/2 Chronicles/2 Chronicles 29#^verse-25|29:25]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 132#^verse-39|D&C 132:39]]).
+
+[[Study Helps/Bible Dictionary/Naphtali|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Nathanael|Next Entry]]

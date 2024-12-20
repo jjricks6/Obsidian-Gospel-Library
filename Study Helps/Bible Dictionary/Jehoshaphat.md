@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Jehoshabeath or Jehosheba|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jehoshaphat, Valley of|Next Entry]]
+
+ (1) King of Judah, in close alliance with kings of Israel, but still a true worshipper of Jehovah and a religious reformer; for a history of his reign see [[Old Testament/1 Kings/1 Kings 15#^verse-24|1 Kgs. 15:24]]; [[Old Testament/1 Kings/1 Kings 22|22]]; [[Old Testament/2 Kings/2 Kings 1#^verse-17|2 Kgs. 1:17]]; [[Old Testament/2 Kings/2 Kings 3#^verse-1|3:1-14]]; [[Old Testament/2 Kings/2 Kings 8#^verse-16|8:16]]; [[Old Testament/2 Kings/2 Kings 12#^verse-18|12:18]]; [[Old Testament/1 Chronicles/1 Chronicles 3#^verse-10|1 Chr. 3:10]]; [[Old Testament/2 Chronicles/2 Chronicles 17#^verse-1|2 Chr. 17:1-12]]; [[Old Testament/2 Chronicles/2 Chronicles 18|18]]; [[Old Testament/2 Chronicles/2 Chronicles 19#^verse-1|19:1-8]]; [[Old Testament/2 Chronicles/2 Chronicles 20|20]]; [[Old Testament/2 Chronicles/2 Chronicles 21#^verse-1|21:1, 2, 12]]; [[Old Testament/2 Chronicles/2 Chronicles 22#^verse-9|22:9]].
+
+ (2) David's recorder, or keeper of the state chronicles ([[Old Testament/2 Samuel/2 Samuel 8#^verse-16|2 Sam. 8:16]]).
+
+[[Study Helps/Bible Dictionary/Jehoshabeath or Jehosheba|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Jehoshaphat, Valley of|Next Entry]]

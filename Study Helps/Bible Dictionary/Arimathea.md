@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Ariel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Aristarchus|Next Entry]]
+
+ Home of Joseph, the wealthy counselor who was a disciple of Jesus ([[New Testament/Matthew/Matthew 27#^verse-57|Matt. 27:57]]; [[New Testament/Luke/Luke 23#^verse-50|Luke 23:50-51]]; [[New Testament/John/John 19#^verse-38|John 19:38]]) and in whose tomb Jesus was buried. May be Ramathaim of the Old Testament, the birthplace of Samuel ([[Old Testament/1 Samuel/1 Samuel 1#^verse-1|1 Sam. 1:1]]), lying in the hill country of Ephraim northwest of Jerusalem, and sometimes called Ramah. See also [[Study Helps/Bible Dictionary/Joseph|Joseph]]; [[Study Helps/Bible Dictionary/Ramah|Ramah]].
+
+[[Study Helps/Bible Dictionary/Ariel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Aristarchus|Next Entry]]

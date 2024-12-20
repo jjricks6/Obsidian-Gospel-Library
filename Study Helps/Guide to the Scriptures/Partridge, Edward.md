@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Parents|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Passover|Next Entry]]
+
+ An early member and leader of the Church after its restoration in modern times. Edward Partridge served as the first bishop of the Church ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 36|D&C 36]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 41#^verse-9|41:9-11]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 42#^verse-10|42:10]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 51#^verse-1|51:1-18]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 115|115]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 124#^verse-19|124:19]]).
+
+[[Study Helps/Guide to the Scriptures/Parents|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Passover|Next Entry]]

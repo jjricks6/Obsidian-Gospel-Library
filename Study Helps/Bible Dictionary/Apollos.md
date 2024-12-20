@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Apocrypha|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Apollyon|Next Entry]]
+
+ An Alexandrian Jew, an eloquent man and mighty in the scriptures ([[New Testament/Acts/Acts 18#^verse-24|Acts 18:24-19:1]]). He received instruction in the gospel at Ephesus from Aquila and Priscilla and then went to Corinth; his name was afterwards connected with one of the disputes that arose there ([[New Testament/1 Corinthians/1 Corinthians 1#^verse-12|1 Cor. 1:12]]; [[New Testament/1 Corinthians/1 Corinthians 3#^verse-4|3:4-6, 22]]; [[New Testament/1 Corinthians/1 Corinthians 16#^verse-12|16:12]]). We afterwards hear of him in Crete ([[New Testament/Titus/Titus 3#^verse-13|Titus 3:13]]).
+
+[[Study Helps/Bible Dictionary/Apocrypha|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Apollyon|Next Entry]]

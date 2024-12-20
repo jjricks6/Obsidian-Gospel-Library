@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Devil|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Diana|Next Entry]]
+
+ Of great importance in Palestine owing to the want of rain during a large portion of the year; hence spoken of as a source of fertility ([[Old Testament/Genesis/Genesis 27#^verse-28|Gen. 27:28]]; [[Old Testament/Deuteronomy/Deuteronomy 33#^verse-13|Deut. 33:13]]); and in poetry as typical of any beneficial effect produced by quiet means ([[Old Testament/Deuteronomy/Deuteronomy 32#^verse-2|Deut. 32:2]]; [[Old Testament/Psalms/Psalms 110#^verse-3|Ps. 110:3]]; [[Old Testament/Psalms/Psalms 133#^verse-3|133:3]]; [[Old Testament/Proverbs/Proverbs 19#^verse-12|Prov. 19:12]]; [[Old Testament/Song of Solomon/Song of Solomon 5#^verse-2|Song 5:2]]; [[Old Testament/Isaiah/Isaiah 18#^verse-4|Isa. 18:4]]; [[Old Testament/Isaiah/Isaiah 26#^verse-19|26:19]]; [[Old Testament/Hosea/Hosea 6#^verse-4|Hosea 6:4]]; [[Old Testament/Hosea/Hosea 13#^verse-3|13:3]]; [[Old Testament/Hosea/Hosea 14#^verse-5|14:5]]; [[Old Testament/Micah/Micah 5#^verse-7|Micah 5:7]]).
+
+[[Study Helps/Bible Dictionary/Devil|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Diana|Next Entry]]

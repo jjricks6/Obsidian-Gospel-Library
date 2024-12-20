@@ -1,0 +1,9 @@
+[[Study Helps/Bible Dictionary/Bilhah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bishop|Next Entry]]
+
+ Under the patriarchal order, the right or inheritance of the firstborn is known as birthright. This generally included a land inheritance as well as the authority to preside. The firstborn of flocks and of human families was considered as belonging to the Lord and was expected to be dedicated to Him. This dedication could be either literal or by the payment of redemption money ([[Old Testament/Exodus/Exodus 13#^verse-11|Ex. 13:11-16]]).
+
+ From time to time certain prerogatives, opportunities, and blessings have attended those who were born of a particular lineage. Thus the office of high priest (of the Aaronic order) and the office of the patriarch to the Church (in the Melchizedek Priesthood) are hereditary in nature. Lineage alone does not guarantee the blessings or spiritual power of the office, but the opportunities are offered to the firstborn of the selected lineage. There are several instances in the scriptures of the one who was the firstborn losing his birthright because of unrighteousness and his office being given to another; such is the case with Esau ([[Old Testament/Genesis/Genesis 25#^verse-24|Gen. 25:24-34]]; [[Old Testament/Genesis/Genesis 27|27]]) and Reuben ([[Old Testament/1 Chronicles/1 Chronicles 5#^verse-1|1 Chr. 5:1-2]]; [[Old Testament/Jeremiah/Jeremiah 31#^verse-9|Jer. 31:9]]).
+
+ See also [[Study Helps/Bible Dictionary/Firstborn|Firstborn]].
+
+[[Study Helps/Bible Dictionary/Bilhah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bishop|Next Entry]]

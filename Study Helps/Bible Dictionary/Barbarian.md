@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Barak|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bar-jesus|Next Entry]]
+
+ Literally means a "foreigner." The word barbarian is not used in the Old Testament but is synonymous with such words as stranger, alien, sojourner, and Gentile. In the New Testament it connotes peoples of the Mediterranean area who are not of the Greco-Roman culture ([[New Testament/Romans/Romans 1#^verse-14|Rom. 1:14]]; [[New Testament/Colossians/Colossians 3#^verse-11|Col. 3:11]]) or those whose language is not familiar to the hearer, as in [[New Testament/1 Corinthians/1 Corinthians 14#^verse-11|1 Cor. 14:11]]. See also [[New Testament/Acts/Acts 28#^verse-2|Acts 28:2]].
+
+[[Study Helps/Bible Dictionary/Barak|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bar-jesus|Next Entry]]

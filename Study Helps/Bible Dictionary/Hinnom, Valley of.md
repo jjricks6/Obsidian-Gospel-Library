@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hill country|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hiram|Next Entry]]
+
+ South and west of Jerusalem, it was the scene of the idolatrous worship of the fire-god Moloch ([[Old Testament/2 Chronicles/2 Chronicles 28#^verse-3|2 Chr. 28:3]]; [[Old Testament/2 Chronicles/2 Chronicles 33#^verse-6|33:6]]; [[Old Testament/Jeremiah/Jeremiah 7#^verse-31|Jer. 7:31]]; [[Old Testament/Jeremiah/Jeremiah 32#^verse-35|32:35]]; see also [[Old Testament/2 Kings/2 Kings 16#^verse-3|2 Kgs. 16:3]]; [[Old Testament/2 Kings/2 Kings 21#^verse-6|21:6]]), and was afterwards used as a place of refuse ([[Old Testament/2 Kings/2 Kings 23#^verse-10|2 Kgs. 23:10-14]]). In New Testament times it was called Gehenna and was regarded by the Jews as symbolic of the place of torment.
+
+[[Study Helps/Bible Dictionary/Hill country|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hiram|Next Entry]]

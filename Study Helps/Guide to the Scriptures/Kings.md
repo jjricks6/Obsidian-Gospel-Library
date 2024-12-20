@@ -1,0 +1,13 @@
+[[Study Helps/Guide to the Scriptures/Kingmen|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Kirtland Temple, Ohio (USA)|Next Entry]]
+
+ Two books in the Old Testament. These books narrate the history of Israel from the rebellion of Adonijah, the fourth son of King David (about 1015 B.C.), to the final captivity of Judah (about 586 B.C.). They include the whole history of the northern kingdom (the ten tribes of Israel) from the separation until the Assyrians took them captive into the north countries. See also [[Study Helps/Bible Chronology/Introduction|Chronology]] in the appendix.
+
+## First Kings
+
+ [[Old Testament/1 Kings/1 Kings 1|Chapter 1]] describes the final days of King David's life. [[Old Testament/1 Kings/1 Kings 2|Chapters 2-11]] record Solomon's life. [[Old Testament/1 Kings/1 Kings 12|Chapters 12-16]] tell of Solomon's immediate successors, Rehoboam and Jeroboam. Jeroboam caused the division of the kingdom of Israel. Other kings are also mentioned. [[Old Testament/1 Kings/1 Kings 17|Chapters 17-21]] record parts of the ministry of Elijah as he admonished Ahab, king of Israel. [[Old Testament/1 Kings/1 Kings 22|Chapter 22]] records a war against Syria in which Ahab and Jehoshaphat, king of Judah, join forces. The prophet Micaiah prophesies against the kings.
+
+## Second Kings
+
+ [[Old Testament/2 Kings/2 Kings 1#^verse-1|Chapters 1:1-2:11]] continue the life of Elijah, including Elijah's rise to heaven in a chariot of fire. [[Old Testament/2 Kings/2 Kings 2|Chapters 2-9]] relate Elisha's ministry of faith and great power. [[Old Testament/2 Kings/2 Kings 10|Chapter 10]] tells of Jehu, the king, and how he destroyed the house of Ahab and the priests of Baal. [[Old Testament/2 Kings/2 Kings 11|Chapters 11-13]] record the righteous reign of Jehoash and the death of Elisha. [[Old Testament/2 Kings/2 Kings 14|Chapters 14-17]] tell of various kings who reigned in Israel and Judah, often in wickedness. [[Old Testament/2 Kings/2 Kings 15|Chapter 15]] records the Assyrian capture of the ten tribes of Israel. [[Old Testament/2 Kings/2 Kings 18|Chapters 18-20]] record the righteous life of Hezekiah, the king of Judah, and the prophet Isaiah. [[Old Testament/2 Kings/2 Kings 21|Chapters 21-23]] tell of the kings Manasseh and Josiah. According to tradition, Manasseh was responsible for the martyrdom of Isaiah. Josiah was a righteous king who reestablished the law among the Jews. [[Old Testament/2 Kings/2 Kings 24|Chapters 24-25]] record the Babylonian captivity.
+
+[[Study Helps/Guide to the Scriptures/Kingmen|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Kirtland Temple, Ohio (USA)|Next Entry]]

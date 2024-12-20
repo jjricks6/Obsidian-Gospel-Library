@@ -1,0 +1,7 @@
+[[Study Helps/Bible Dictionary/Birthright|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bitter herbs|Next Entry]]
+
+ Greek episkopos, meaning "overseer," an office or position of responsibility. Hence, Jesus is called the "Bishop of your souls" ([[New Testament/1 Peter/1 Peter 2#^verse-21|1 Pet. 2:21-25]]). Judas is also spoken of as having a "bishoprick," reflecting the fact that the Twelve are overseers ([[New Testament/Acts/Acts 1#^verse-20|Acts 1:20]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 114|D&C 114]]).
+
+ Bishop is also an ordained office in the Aaronic Priesthood ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 20#^verse-67|D&C 20:67]]), and a bishop is a common judge in Israel ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 107#^verse-74|D&C 107:74]]). The desirable qualifications of a bishop are listed in [[New Testament/1 Timothy/1 Timothy 3#^verse-1|1 Tim. 3:1-7]]; [[New Testament/Titus/Titus 1#^verse-7|Titus 1:7-9]]. See also [[Study Helps/Bible Dictionary/Ministry|Ministry]].
+
+[[Study Helps/Bible Dictionary/Birthright|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Bitter herbs|Next Entry]]

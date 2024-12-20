@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Lazarus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Leasing|Next Entry]]
+
+ Weary. Eldest daughter of Laban. She became Jacob's wife through a trick of Laban's, who passed her off as his daughter Rachel; being veiled, the mistake was not discovered till after the marriage had taken place ([[Old Testament/Genesis/Genesis 29|Gen. 29]]). She became the mother of six sons and one daughter ([[Old Testament/Genesis/Genesis 29#^verse-30|Gen. 29:30-32]]; [[Old Testament/Genesis/Genesis 30#^verse-17|30:17-21]]; see also [[Old Testament/Genesis/Genesis 31#^verse-4|31:4, 14, 33]]; [[Old Testament/Genesis/Genesis 33#^verse-1|33:1-2, 7]]; [[Old Testament/Genesis/Genesis 35#^verse-23|35:23, 26]]; [[Old Testament/Genesis/Genesis 49#^verse-31|49:31]]).
+
+[[Study Helps/Bible Dictionary/Lazarus|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Leasing|Next Entry]]

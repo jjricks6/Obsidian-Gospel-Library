@@ -1,0 +1,11 @@
+[[Study Helps/Guide to the Scriptures/Magog|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Mammon|Next Entry]]
+
+ An Old Testament prophet who wrote and prophesied at approximately 430 B.C.
+
+## The book of Malachi
+
+ The book or prophecy of Malachi is the last book in the Old Testament. It seems to follow four major themes: (1) the sins of Israel—[[Old Testament/Malachi/Malachi 1#^verse-6|Malachi 1:6-2:17]]; [[Old Testament/Malachi/Malachi 3#^verse-8|3:8-9]]; (2) the judgments to come upon Israel because of their disobedience—[[Old Testament/Malachi/Malachi 1#^verse-14|Malachi 1:14]]; [[Old Testament/Malachi/Malachi 2#^verse-2|2:2-3, 12]]; [[Old Testament/Malachi/Malachi 3#^verse-5|3:5]]; (3) the promises for obedience—[[Old Testament/Malachi/Malachi 3#^verse-10|Malachi 3:10-12, 16-18]]; [[Old Testament/Malachi/Malachi 4#^verse-2|4:2-3]]; and (4) prophecies pertaining to Israel—[[Old Testament/Malachi/Malachi 3#^verse-1|Malachi 3:1-5]]; [[Old Testament/Malachi/Malachi 4#^verse-1|4:1, 5-6]] ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 2|D&C 2]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 128#^verse-17|128:17]]; [[Pearl of Great Price/Joseph Smith—History#^verse-37|JS—H 1:37-39]]).
+
+ In his prophecy, Malachi wrote of John the Baptist ([[Old Testament/Malachi/Malachi 3#^verse-1|Mal. 3:1]]; [[New Testament/Matthew/Matthew 11#^verse-10|Matt. 11:10]]), the law of tithing ([[Old Testament/Malachi/Malachi 3#^verse-7|Mal. 3:7-12]]), the Second Coming of the Lord ([[Old Testament/Malachi/Malachi 4#^verse-5|Mal. 4:5]]), and the return of Elijah ([[Old Testament/Malachi/Malachi 4#^verse-5|Mal. 4:5-6]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 2|D&C 2]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 128#^verse-17|128:17]]; [[Pearl of Great Price/Joseph Smith—History#^verse-37|JS—H 1:37-39]]). The Savior quoted all of [[Old Testament/Malachi/Malachi 3|Malachi chapters 3 and 4]] to the Nephites ([[Book of Mormon/3 Nephi/3 Nephi 24|3 Ne. 24-25]]).
+
+[[Study Helps/Guide to the Scriptures/Magog|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Mammon|Next Entry]]

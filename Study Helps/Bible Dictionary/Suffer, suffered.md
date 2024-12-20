@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Succoth-benoth|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Swine|Next Entry]]
+
+ To permit, allow ([[Old Testament/Genesis/Genesis 20#^verse-6|Gen. 20:6]]; [[Old Testament/Genesis/Genesis 31#^verse-7|31:7]]; [[New Testament/Matthew/Matthew 3#^verse-15|Matt. 3:15]]; [[New Testament/Matthew/Matthew 17#^verse-17|17:17]]; [[New Testament/1 Timothy/1 Timothy 2#^verse-12|1 Tim. 2:12]]). Also used in its current meaning of enduring and tolerating pain, affliction, or an uncomfortable situation ([[Old Testament/Psalms/Psalms 9#^verse-13|Ps. 9:13]]; [[New Testament/Acts/Acts 3#^verse-18|Acts 3:18]]; [[New Testament/Hebrews/Hebrews 5#^verse-8|Heb. 5:8]]; [[New Testament/1 Peter/1 Peter 3#^verse-18|1 Pet. 3:18]]; [[New Testament/1 Peter/1 Peter 4#^verse-1|4:1]]).
+
+[[Study Helps/Bible Dictionary/Succoth-benoth|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Swine|Next Entry]]

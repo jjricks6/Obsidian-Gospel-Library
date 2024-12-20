@@ -1,0 +1,21 @@
+[[Study Helps/Bible Dictionary/Peter|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Pharaoh|Next Entry]]
+
+ The first epistle was written from "Babylon" (probably Rome) soon after the outbreak of the Neronian persecution, A.D. 64, and is addressed to Christians in the different provinces of what is now called Asia Minor. Its object is to encourage men who were in danger of being terrified into a denial of their Lord (compare [[New Testament/Luke/Luke 22#^verse-32|Luke 22:32]]), but it also contains valuable teaching about the Atonement ([[New Testament/1 Peter/1 Peter 1#^verse-11|1 Pet. 1:11, 18-19]]; [[New Testament/1 Peter/1 Peter 2#^verse-21|2:21-25]]; [[New Testament/1 Peter/1 Peter 3#^verse-18|3:18]]; [[New Testament/1 Peter/1 Peter 4#^verse-1|4:1, 12-19]]) and the doctrines of baptism and resurrection ([[New Testament/1 Peter/1 Peter 1#^verse-3|1:3, 23]]).
+
+## Analysis of the First Epistle
+
+ [[New Testament/1 Peter/1 Peter 1#^verse-1|1:1-2]], salutation; [[New Testament/1 Peter/1 Peter 1#^verse-3|3-12]], thanksgiving for the new life that the Resurrection of Jesus Christ had brought with it; [[New Testament/1 Peter/1 Peter 1#^verse-13|13-25]], an earnest call to a life of holiness, obedience, and love, remembering the price of our redemption.
+
+ [[New Testament/1 Peter/1 Peter 2#^verse-1|2:1-10]], Christ is the Cornerstone in the "spiritual house" into which individual Christians are built as "lively stones"; [[New Testament/1 Peter/1 Peter 2#^verse-11|11-12]], the flesh must therefore be kept in subjection, and, [[New Testament/1 Peter/1 Peter 2#^verse-13|13-25]], obedience must be rendered to constituted authority, even undeserved punishment being endured with patience, remembering the sufferings of Christ.
+
+ [[New Testament/1 Peter/1 Peter 3#^verse-1|3:1-7]], the duties of wives and husbands; [[New Testament/1 Peter/1 Peter 3#^verse-8|8-12]], exhortation to unity and love; [[New Testament/1 Peter/1 Peter 3#^verse-13|13-17]], the need of care lest the force of our witness should be marred by arrogance or moral laxity; [[New Testament/1 Peter/1 Peter 3#^verse-18|18-22]], if suffering comes, there is strength to endure in the thought of the sufferings of Christ, who, after His mortal death, preached the gospel also in the spirit world (see also [[New Testament/1 Peter/1 Peter 4#^verse-6|1 Pet. 4:6]]).
+
+ [[New Testament/1 Peter/1 Peter 4#^verse-1|4:1-6]], fresh exhortation to avoid the lusts of men and live according to the will of God, and, [[New Testament/1 Peter/1 Peter 4#^verse-7|7-11]], to exercise our gifts for the good of all and the glory of Jesus Christ; [[New Testament/1 Peter/1 Peter 4#^verse-12|12-19]], to be partakers in Christ's sufferings is to rejoice in His glory, and a ground for thanksgiving, but not for presumption or moral carelessness.
+
+ [[New Testament/1 Peter/1 Peter 5#^verse-1|5:1-11]], practical exhortations; [[New Testament/1 Peter/1 Peter 5#^verse-12|12-14]], salutations.
+
+## Analysis of the Second Epistle
+
+ The second epistle was apparently addressed to the same churches as the first ([[New Testament/2 Peter/2 Peter 3#^verse-1|3:1]]). It was written in the near prospect of death ([[New Testament/2 Peter/2 Peter 1#^verse-14|1:14]]) and aims at guarding against apostasy. In [[New Testament/2 Peter/2 Peter 1|2 Pet. 1]] we read some of Peter's most forceful language, explaining how man can lay hold of the promise of eternal life and obtain the more sure word of prophecy ([[New Testament/2 Peter/2 Peter 1#^verse-19|1:19]]; see also [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 131#^verse-5|D&C 131:5]]). In [[New Testament/2 Peter/2 Peter 2|2 Pet. 2]], Peter speaks of the sophistry and lack of faith that often accompanies worldly learning and acclaim. In [[New Testament/2 Peter/2 Peter 3|2 Pet. 3]], Peter reaffirms that the Lord will come from heaven in great glory and in judgment upon the earth. The Prophet Joseph Smith said that "Peter penned the most sublime language of any of the apostles" (HC 5:392).
+
+[[Study Helps/Bible Dictionary/Peter|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Pharaoh|Next Entry]]

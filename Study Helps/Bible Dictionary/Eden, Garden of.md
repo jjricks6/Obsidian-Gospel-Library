@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Ecclesiastes|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Edom|Next Entry]]
+
+ The home of our first parents, Adam and Eve ([[Old Testament/Genesis/Genesis 2#^verse-8|Gen. 2:8-3:24]]; [[Old Testament/Genesis/Genesis 4#^verse-16|4:16]]; [[Old Testament/Isaiah/Isaiah 51#^verse-3|Isa. 51:3]]; [[Book of Mormon/2 Nephi/2 Nephi 2#^verse-19|2 Ne. 2:19-25]]; [[Pearl of Great Price/Moses/Moses 3|Moses 3-4]]; [[Pearl of Great Price/Abraham/Abraham 5|Abr. 5]]), designated as a garden, eastward in Eden. Latter-day revelation confirms the biblical account of the Garden of Eden and adds the important information that it was located on what is now the North American continent.
+
+[[Study Helps/Bible Dictionary/Ecclesiastes|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Edom|Next Entry]]

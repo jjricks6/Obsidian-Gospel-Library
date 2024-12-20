@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Kirjath-arba|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kishon|Next Entry]]
+
+ City of woods. A town on the boundary between Judah and Benjamin, 7Â½ miles northwest of Jerusalem ([[Old Testament/Joshua/Joshua 9#^verse-17|Josh. 9:17]]; [[Old Testament/Joshua/Joshua 18#^verse-14|18:14-15]]); the Ark was here for 20 years ([[Old Testament/1 Samuel/1 Samuel 6#^verse-21|1 Sam. 6:21]]; [[Old Testament/2 Samuel/2 Samuel 6#^verse-2|2 Sam. 6:2]]; [[Old Testament/1 Chronicles/1 Chronicles 13#^verse-5|1 Chr. 13:5-6]]; [[Old Testament/2 Chronicles/2 Chronicles 1#^verse-4|2 Chr. 1:4]]). It was also known as Kirjath-Baal or Baale-Judah, and Kirjath-arim.
+
+[[Study Helps/Bible Dictionary/Kirjath-arba|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Kishon|Next Entry]]

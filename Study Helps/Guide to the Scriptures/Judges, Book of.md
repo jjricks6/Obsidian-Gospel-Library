@@ -1,0 +1,7 @@
+[[Study Helps/Guide to the Scriptures/Judge, Judgment|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Judgment, the Last|Next Entry]]
+
+ A book in the Old Testament. The book of Judges deals with the Israelites from the death of Joshua to the birth of Samuel.
+
+ [[Old Testament/Judges/Judges 1|Chapters 1-3]] are a preface to the entire book of Judges. They explain that because the Israelites did not drive out their enemies ([[Old Testament/Judges/Judges 1#^verse-16|Judg. 1:16-35]]), the Israelites must suffer the consequences: loss of faith, marriages with nonbelievers, and idolatry. [[Old Testament/Judges/Judges 4|Chapters 4-5]] relate the experiences of Deborah and Barak, who delivered Israel from the Canaanites. [[Old Testament/Judges/Judges 6|Chapters 6-8]] are the faith-promoting experiences of Gideon, whom the Lord blessed to deliver Israel from the Midianites. In [[Old Testament/Judges/Judges 9|chapters 9-12]], several different men serve as judges in Israel during the time most of the Israelites were in apostasy and governed by foreign rulers. [[Old Testament/Judges/Judges 13|Chapters 13-16]] tell of the rise and fall of the last judge, Samson. The [[Old Testament/Judges/Judges 17|final chapters, 17-21]], can be described as an appendix that reveals the depths of Israel's sins.
+
+[[Study Helps/Guide to the Scriptures/Judge, Judgment|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Judgment, the Last|Next Entry]]

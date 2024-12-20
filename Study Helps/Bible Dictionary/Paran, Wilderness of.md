@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Paradise|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Parousia|Next Entry]]
+
+ The desert between Judea and Sinai, forming the central part of the Sinaitic peninsula ([[Old Testament/Genesis/Genesis 21#^verse-21|Gen. 21:21]]; [[Old Testament/Numbers/Numbers 10#^verse-12|Num. 10:12]]; [[Old Testament/Numbers/Numbers 12#^verse-16|12:16]]; [[Old Testament/Numbers/Numbers 13#^verse-3|13:3, 26]]; [[Old Testament/Deuteronomy/Deuteronomy 1#^verse-1|Deut. 1:1]]; [[Old Testament/Deuteronomy/Deuteronomy 33#^verse-2|33:2]]; [[Old Testament/1 Samuel/1 Samuel 25#^verse-1|1 Sam. 25:1]]; [[Old Testament/1 Kings/1 Kings 11#^verse-18|1 Kgs. 11:18]]; [[Old Testament/Habakkuk/Habakkuk 3#^verse-3|Hab. 3:3]]); called El-paran ([[Old Testament/Genesis/Genesis 14#^verse-6|Gen. 14:6]]).
+
+[[Study Helps/Bible Dictionary/Paradise|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Parousia|Next Entry]]

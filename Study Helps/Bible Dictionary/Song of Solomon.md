@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Solomon's Porch|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Son of God|Next Entry]]
+
+ Sometimes called Canticles (as in Latin) or Song of Songs (as in Hebrew). Whether Solomon is actually the author is doubtful. The composition has many beautiful phrases and lyrical prose, often quoted in nonreligious literature. The [[Old Testament/Song of Solomon/Song of Solomon 1|JST]] states that "the Songs of Solomon are not inspired writings." Both Jews and Christians have at times been reluctant to accept it into the canon of scripture because of its romantic content but have permitted it on the basis of its being an allegory of God's love for Israel and of the Church.
+
+[[Study Helps/Bible Dictionary/Solomon's Porch|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Son of God|Next Entry]]

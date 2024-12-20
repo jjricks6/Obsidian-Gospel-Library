@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Beelzebub|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Behemoth|Next Entry]]
+
+ Well of the oath. The home of Abraham ([[Old Testament/Genesis/Genesis 21#^verse-31|Gen. 21:31]]), Isaac ([[Old Testament/Genesis/Genesis 26#^verse-23|26:23]]), and Jacob ([[Old Testament/Genesis/Genesis 28#^verse-10|28:10]]); so called from the covenant Abraham made here with Abimelech, king of Gerar ([[Old Testament/Genesis/Genesis 21#^verse-31|21:31]]). It was afterwards in the tribe of Simeon ([[Old Testament/Joshua/Joshua 19#^verse-2|Josh. 19:2]]) and was regarded as the southern limit of Israel ([[Old Testament/Judges/Judges 20#^verse-1|Judg. 20:1]]; [[Old Testament/1 Samuel/1 Samuel 3#^verse-20|1 Sam. 3:20]]). The district contained much rich pasture land.
+
+[[Study Helps/Bible Dictionary/Beelzebub|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Behemoth|Next Entry]]

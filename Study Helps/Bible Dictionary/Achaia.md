@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Aceldama|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Achan|Next Entry]]
+
+ In New Testament times, a Roman province forming the southern part of Greece. [[New Testament/Acts/Acts 18#^verse-12|Acts 18:12, 27]]; [[New Testament/Acts/Acts 19#^verse-21|19:21]]; [[New Testament/Romans/Romans 15#^verse-26|Rom. 15:26]]; [[New Testament/Romans/Romans 16#^verse-5|16:5]]; [[New Testament/1 Corinthians/1 Corinthians 16#^verse-15|1 Cor. 16:15]]; [[New Testament/2 Corinthians/2 Corinthians 1#^verse-1|2 Cor. 1:1]]; [[New Testament/2 Corinthians/2 Corinthians 9#^verse-2|9:2]]; [[New Testament/2 Corinthians/2 Corinthians 11#^verse-10|11:10]]; [[New Testament/1 Thessalonians/1 Thessalonians 1#^verse-7|1 Thes. 1:7-8]].
+
+[[Study Helps/Bible Dictionary/Aceldama|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Achan|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Serpent, brazen|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Shaddai|Next Entry]]
+
+ Son of Adam and Eve, born in the 130th year of Adam's life in mortality ([[New Testament/Luke/Luke 3#^verse-38|Luke 3:38]]; [[Pearl of Great Price/Moses/Moses 6#^verse-1|Moses 6:1-3]]; [[Pearl of Great Price/Moses/Moses 6#^verse-9|6:9-11]]). A prophet and patriarch, he was ordained by Adam at the age of 69 years. He is called "a perfect man, and his likeness was the express likeness of his father, insomuch that he seemed to be like unto his father in all things" ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 107#^verse-42|D&C 107:42-43]]). The record says he lived 912 years ([[Old Testament/Genesis/Genesis 5#^verse-8|Gen. 5:8]]; [[Pearl of Great Price/Moses/Moses 6#^verse-16|Moses 6:16]]).
+
+[[Study Helps/Bible Dictionary/Serpent, brazen|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Shaddai|Next Entry]]

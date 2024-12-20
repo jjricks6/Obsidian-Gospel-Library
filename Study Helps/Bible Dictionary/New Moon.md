@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Nergal-sharezer|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/New Testament|Next Entry]]
+
+ The law appointed that at the new moon special sacrifices should be offered ([[Old Testament/Numbers/Numbers 10#^verse-10|Num. 10:10]]; see also [[Old Testament/1 Samuel/1 Samuel 20#^verse-5|1 Sam. 20:5-6, 29]]; [[Old Testament/2 Kings/2 Kings 4#^verse-23|2 Kgs. 4:23]]; [[Old Testament/Amos/Amos 8#^verse-5|Amos 8:5]]). The prophets often speak of "new moons" along with "Sabbaths." As the days for all Jewish feasts were reckoned by the moon, the exact time of the appearance of the new moon was of great importance. Watchers were placed on the hills around Jerusalem, and watchfires on the hilltops told the news to distant cities. It is said that the Samaritans, in order to cause confusion, lighted fires on their hills at wrong times.
+
+[[Study Helps/Bible Dictionary/Nergal-sharezer|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/New Testament|Next Entry]]

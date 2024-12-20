@@ -1,0 +1,5 @@
+[[Study Helps/Guide to the Scriptures/Marriage, Marry|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Martha|Next Entry]]
+
+ The first President of the Quorum of the Twelve Apostles after the Restoration of the Church in 1830. He held the keys to the kingdom as pertained to the Twelve ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 112#^verse-16|D&C 112:16]]) and, in 1838, was commanded by revelation to publish the Lord's word ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 118#^verse-2|D&C 118:2]]). [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 31|Section 31 of the Doctrine and Covenants]] is directed to him. Marsh was excommunicated from the Church in 1839 but was rebaptized in July 1857.
+
+[[Study Helps/Guide to the Scriptures/Marriage, Marry|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Martha|Next Entry]]

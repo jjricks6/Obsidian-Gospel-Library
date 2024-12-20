@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Hebrews, Epistle to|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hell|Next Entry]]
+
+ An ancient city of Judah, 3040 feet above the Mediterranean, 20 miles south of Jerusalem; known also as Mamre and Kirjath-arba ([[Old Testament/Genesis/Genesis 13#^verse-18|Gen. 13:18]]; [[Old Testament/Genesis/Genesis 35#^verse-27|35:27]]). It was the burying place of Abraham and his family ([[Old Testament/Genesis/Genesis 23#^verse-2|23:2, 19]]; [[Old Testament/Genesis/Genesis 49#^verse-29|49:29-32]]), and became the property of Caleb ([[Old Testament/Joshua/Joshua 14#^verse-13|Josh. 14:13-15]]). It was one of the six cities of refuge ([[Old Testament/Joshua/Joshua 20#^verse-7|Josh. 20:7]]), a Levitical city ([[Old Testament/Joshua/Joshua 21#^verse-11|Josh. 21:11, 13]]), and David's capital during the earlier part of his reign ([[Old Testament/2 Samuel/2 Samuel 5#^verse-3|2 Sam. 5:3-5]]). During the later history of the nation it continued to be a place of importance, and it still has a large population.
+
+[[Study Helps/Bible Dictionary/Hebrews, Epistle to|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Hell|Next Entry]]

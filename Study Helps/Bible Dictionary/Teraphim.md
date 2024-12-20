@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Terah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Testament|Next Entry]]
+
+ Images of the size and form of a man ([[Old Testament/1 Samuel/1 Samuel 19#^verse-13|1 Sam. 19:13, 16]]) used from patriarchal times ([[Old Testament/Genesis/Genesis 31#^verse-30|Gen. 31:30, 32]]) and onwards ([[Old Testament/Judges/Judges 17#^verse-5|Judg. 17:5]]; [[Old Testament/Hosea/Hosea 3#^verse-4|Hosea 3:4-5]]; [[Old Testament/Zechariah/Zechariah 10#^verse-2|Zech. 10:2]]) in worship and for magical purposes both in Israel and in Babylon ([[Old Testament/Ezekiel/Ezekiel 21#^verse-21|Ezek. 21:21]]). To use teraphim was probably not to worship strange gods but to worship the true God in a corrupt manner.
+
+[[Study Helps/Bible Dictionary/Terah|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Testament|Next Entry]]

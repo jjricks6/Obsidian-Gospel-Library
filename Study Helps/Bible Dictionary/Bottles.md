@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Book of life|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Brazen serpent|Next Entry]]
+
+ Generally made of skins of animals; the head and legs being cut off, the skin was removed from the body without further cutting and was then tanned by means of oak-bark. If wine fermented in a bottle of this kind, it would stretch the skin to such an extent that it could never be used for the purpose a second time; hence the lesson drawn by our Lord in [[New Testament/Matthew/Matthew 9#^verse-17|Matt. 9:17]]; [[New Testament/Mark/Mark 2#^verse-22|Mark 2:22]]; [[New Testament/Luke/Luke 5#^verse-37|Luke 5:37]]; see also [[Old Testament/Job/Job 32#^verse-19|Job 32:19]].
+
+[[Study Helps/Bible Dictionary/Book of life|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Brazen serpent|Next Entry]]

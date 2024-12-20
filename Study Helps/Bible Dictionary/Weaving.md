@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Wave offering|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Weeks, Feast of|Next Entry]]
+
+ Practiced in Palestine from the earliest times. The loom in use was an upright frame, provided with a horizontal beam ([[Old Testament/1 Samuel/1 Samuel 17#^verse-7|1 Sam. 17:7]]) from which a row of threads, called the warp ([[Old Testament/Leviticus/Leviticus 13#^verse-48|Lev. 13:48]]) or web ([[Old Testament/Judges/Judges 16#^verse-13|Judg. 16:13]]) was hung. Each thread ran through a loop, by means of which it was moved backwards and forwards, while the shuttle, a wooden implement shaped like a boat, passed to and fro among the threads of the warp, winding off from itself, as it went, the thread called the woof ([[Old Testament/Leviticus/Leviticus 13#^verse-48|Lev. 13:48]]), which was at right angles with the warp. In [[Old Testament/Job/Job 7#^verse-6|Job 7:6]] the shuttle is the emblem of the swift flight of man's life.
+
+[[Study Helps/Bible Dictionary/Wave offering|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Weeks, Feast of|Next Entry]]

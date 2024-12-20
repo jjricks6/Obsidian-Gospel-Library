@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Resurrection|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Reuben|Next Entry]]
+
+ ([[Old Testament/Exodus/Exodus 21#^verse-23|Ex. 21:23-25]]; [[Old Testament/Leviticus/Leviticus 24#^verse-18|Lev. 24:18-21]]; [[Old Testament/Deuteronomy/Deuteronomy 19#^verse-21|Deut. 19:21]].) The Mosaic law aimed at making the punishment an appropriate equivalent to the offence committed. Wrongdoing must not go unpunished; on the other hand, however, the punishment must not be vindictive or excessive. In the Sermon on the Mount ([[New Testament/Matthew/Matthew 5#^verse-38|Matt. 5:38-42]]), the Lord goes further, and urges us, so far as private wrongs to ourselves are concerned, not to retaliate at all ([[New Testament/Romans/Romans 12#^verse-17|Rom. 12:17, 19]]). See also [[Study Helps/Bible Dictionary/Revenge|Revenge]].
+
+[[Study Helps/Bible Dictionary/Resurrection|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Reuben|Next Entry]]

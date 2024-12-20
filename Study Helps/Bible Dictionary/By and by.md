@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Burnt offering|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cab|Next Entry]]
+
+ An English term that in 1611 meant "immediately." However, in common usage today it has come to mean nearly the opposite. It occurs in [[New Testament/Matthew/Matthew 13#^verse-21|Matt. 13:21]], in the parable of the sower; in [[New Testament/Mark/Mark 6#^verse-25|Mark 6:25]], in the account of the beheading of John the Baptist; and in [[New Testament/Luke/Luke 21#^verse-9|Luke 21:9]], in Jesus' explanation of events connected with the destruction of Jerusalem. In each case a proper recognition of the term is necessary in order to correctly understand the narrative. See also [[New Testament/Luke/Luke 17#^verse-7|Luke 17:7]].
+
+[[Study Helps/Bible Dictionary/Burnt offering|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Cab|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Anoint|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Anon|Next Entry]]
+
+ Jesus is spoken of as the Christ and the Messiah, which means He is the one anointed of the Father to be His personal representative in all things pertaining to the salvation of mankind. The English word Christ is from a Greek word meaning "anointed" and is the equivalent of Messiah, which is from a Hebrew and Aramaic term meaning "anointed." See [[Old Testament/Psalms/Psalms 2#^verse-2|Ps. 2:2]]; [[Old Testament/Isaiah/Isaiah 61#^verse-1|Isa. 61:1-3]]; [[New Testament/Luke/Luke 4#^verse-16|Luke 4:16-32]]; [[New Testament/Acts/Acts 4#^verse-23|Acts 4:23-30]]; [[New Testament/Acts/Acts 10#^verse-38|10:38]].
+
+[[Study Helps/Bible Dictionary/Anoint|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Anon|Next Entry]]

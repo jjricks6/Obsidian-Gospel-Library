@@ -1,0 +1,9 @@
+[[Study Helps/Guide to the Scriptures/Do|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Doctrine of Christ|Next Entry]]
+
+ See also [[Study Helps/Guide to the Scriptures/Book of Commandments|Book of Commandments]]; [[Study Helps/Guide to the Scriptures/Canon|Canon]]; [[Study Helps/Guide to the Scriptures/Scriptures|Scriptures]]; [[Study Helps/Guide to the Scriptures/Smith, Joseph, Jr.|Smith, Joseph, Jr.]]
+
+ A collection of latter-day divine revelations and inspired declarations. The Lord gave these to Joseph Smith and several of his successors for the establishment and regulation of the kingdom of God on the earth in the last days. The Doctrine and Covenants is one of the standard works of scripture in The Church of Jesus Christ of Latter-day Saints, along with the Bible, the Book of Mormon, and the Pearl of Great Price. The Doctrine and Covenants is unique, however, because it is not a translation of ancient documents; the Lord gave these revelations to His chosen prophets in this modern day in order to restore His kingdom. In the revelations one hears the tender but firm voice of the Lord Jesus Christ ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 18#^verse-35|D&C 18:35-36]]).
+
+ Joseph Smith's history says that the Doctrine and Covenants is the foundation of the Church in the last days and a benefit to the world ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 70|D&C 70 heading]]). The revelations in it initiate the work of preparing the way for the Lord's Second Coming, in fulfillment of all the words spoken by the prophets since the world began.
+
+[[Study Helps/Guide to the Scriptures/Do|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/Doctrine of Christ|Next Entry]]

@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Lots, casting of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Luke|Next Entry]]
+
+ Literally the Shining One; also Lightbringer or Son of the Morning. Lucifer is also known as Satan or the devil. The name Lucifer appears only once in the Bible ([[Old Testament/Isaiah/Isaiah 14#^verse-12|Isa. 14:12]]; compare [[New Testament/Luke/Luke 10#^verse-18|Luke 10:18]]). Apparently Lucifer is the name of the devil before his rebellion and fall. Latter-day revelation clarifies the fall of Lucifer and equates him with Satan ([[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 76#^verse-25|D&C 76:25-38]]; see also [[New Testament/Revelation/Revelation 12|Rev. 12]]; [[Book of Mormon/2 Nephi/2 Nephi 9#^verse-8|2 Ne. 9:8]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 29#^verse-36|D&C 29:36-38]]; [[Pearl of Great Price/Moses/Moses 4#^verse-1|Moses 4:1-4]]).
+
+[[Study Helps/Bible Dictionary/Lots, casting of|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Luke|Next Entry]]

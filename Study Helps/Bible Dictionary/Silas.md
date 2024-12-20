@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Sihon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Siloam|Next Entry]]
+
+ Called Silvanus in the epistles, one of the "chief men" among the Christians at Jerusalem, sent to Antioch ([[New Testament/Acts/Acts 15#^verse-22|Acts 15:22]]); a "prophet" ([[New Testament/Acts/Acts 15#^verse-32|15:32]]); remained at Antioch ([[New Testament/Acts/Acts 15#^verse-34|15:34]]); accompanied Paul on his second journey ([[New Testament/Acts/Acts 15#^verse-40|15:40]]); at Philippi ([[New Testament/Acts/Acts 16#^verse-19|16:19]]); left at Beroea ([[New Testament/Acts/Acts 17#^verse-14|17:14]]); with Paul at Corinth ([[New Testament/Acts/Acts 18#^verse-5|18:5]]; see also [[New Testament/1 Thessalonians/1 Thessalonians 1#^verse-1|1 Thes. 1:1]]; [[New Testament/2 Thessalonians/2 Thessalonians 1#^verse-1|2 Thes. 1:1]]; [[New Testament/1 Peter/1 Peter 5#^verse-12|1 Pet. 5:12]]).
+
+[[Study Helps/Bible Dictionary/Sihon|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Siloam|Next Entry]]

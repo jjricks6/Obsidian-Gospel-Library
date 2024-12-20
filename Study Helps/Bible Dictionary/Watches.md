@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/War in Heaven|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Wave offering|Next Entry]]
+
+ The Jews, like the Babylonians and Greeks, divided the night into three watches, "the beginning of the watches," sunset till 10 p.m. ([[Old Testament/Lamentations/Lamentations 2#^verse-19|Lam. 2:19]]); the "middle watch," 10 p.m. till 2 a.m. ([[Old Testament/Judges/Judges 7#^verse-19|Judg. 7:19]]); and the "morning watch," 2 a.m. till sunrise ([[Old Testament/Exodus/Exodus 14#^verse-24|Ex. 14:24]]; [[Old Testament/1 Samuel/1 Samuel 11#^verse-11|1 Sam. 11:11]]; [[New Testament/Luke/Luke 12#^verse-38|Luke 12:38]]). The Romans had four watches, and it is their practice that is followed in [[New Testament/Matthew/Matthew 14#^verse-25|Matt. 14:25]]; [[New Testament/Mark/Mark 6#^verse-48|Mark 6:48]]; [[New Testament/Mark/Mark 13#^verse-35|13:35]].
+
+[[Study Helps/Bible Dictionary/War in Heaven|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Wave offering|Next Entry]]

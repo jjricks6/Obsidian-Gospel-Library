@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Greece|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Habaiah|Next Entry]]
+
+ In Hebrew, called Asherah (of which the plural is Asherim or Asheroth), either a living tree or a tree-like pole, set up as an object of worship, being symbolic of the female or productive principle in nature. Every Phoenician altar had an asherah near it. The word is often translated "green trees" or "grove." This "nature worship" became associated with gross immorality, and so the practice of setting up such "groves" or idols was forbidden by Hebrew prophets ([[Old Testament/Deuteronomy/Deuteronomy 16#^verse-21|Deut. 16:21]]; [[Old Testament/Isaiah/Isaiah 17#^verse-8|Isa. 17:8]]; see also [[Old Testament/Numbers/Numbers 25#^verse-3|Num. 25:3]]; [[Old Testament/Judges/Judges 2#^verse-11|Judg. 2:11-13]]; [[Old Testament/1 Samuel/1 Samuel 7#^verse-3|1 Sam. 7:3-4]]; [[Old Testament/1 Kings/1 Kings 11#^verse-5|1 Kgs. 11:5]]; [[Old Testament/Micah/Micah 5#^verse-13|Micah 5:13-14]]).
+
+[[Study Helps/Bible Dictionary/Greece|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Habaiah|Next Entry]]

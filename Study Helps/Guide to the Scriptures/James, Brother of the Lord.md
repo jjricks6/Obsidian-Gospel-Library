@@ -1,0 +1,9 @@
+[[Study Helps/Guide to the Scriptures/Jacob, Son of Lehi|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/James, Son of Alphaeus|Next Entry]]
+
+ In the New Testament, a brother of the Lord ([[New Testament/Galations/Galations 1#^verse-19|Gal. 1:19]]) and of Joses, Simon, Judas, and some sisters ([[New Testament/Matthew/Matthew 13#^verse-55|Matt. 13:55-56]]; [[New Testament/Mark/Mark 6#^verse-3|Mark 6:3]]; [[New Testament/Jude#^verse-1|Jude 1:1]]). He was also known as James the Just and occupied an important position in the Church in Jerusalem ([[New Testament/Acts/Acts 12#^verse-17|Acts 12:17]]; [[New Testament/Acts/Acts 15#^verse-13|15:13]]; [[New Testament/1 Corinthians/1 Corinthians 15#^verse-7|1 Cor. 15:7]]; [[New Testament/Galations/Galations 2#^verse-9|Gal. 2:9-12]]). He probably wrote the epistle of James.
+
+## The epistle of James
+
+ A book in the New Testament. Originally it was a letter addressed to the twelve tribes of Israel scattered abroad and was probably written from Jerusalem. The epistle contains some clearly stated items about practical religion, including the important advice in [[New Testament/James/James 1|chapter 1]] that if a person lacks wisdom, he should ask God for help ([[New Testament/James/James 1#^verse-5|James 1:5-6]]; [[Pearl of Great Price/Joseph Smith—History#^verse-9|JS—H 1:9-20]]). [[New Testament/James/James 2|Chapter 2]] deals with faith and works. [[New Testament/James/James 3|Chapters 3-4]] speak of the need to control the tongue and admonish the Saints not to speak evil of one another. [[New Testament/James/James 5|Chapter 5]] encourages the Saints to have patience and to call for the elders for a blessing when sick; it also teaches of the blessings of helping to convert others.
+
+[[Study Helps/Guide to the Scriptures/Jacob, Son of Lehi|Previous Entry]]  ||  [[Study Helps/Guide to the Scriptures/James, Son of Alphaeus|Next Entry]]

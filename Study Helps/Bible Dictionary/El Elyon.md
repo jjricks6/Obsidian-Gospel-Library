@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/El-elohe-Israel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Elephant|Next Entry]]
+
+ A Hebrew designation meaning "the most high God," as in [[Old Testament/Genesis/Genesis 14#^verse-18|Gen. 14:18-20, 22]]. It is the name for deity worshipped by Melchizedek, king of Salem, and appears for the first time in the Bible in [[Old Testament/Genesis/Genesis 14#^verse-18|Gen. 14:18]]. It is found also in [[New Testament/Acts/Acts 16#^verse-17|Acts 16:17]]; see also [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 59#^verse-10|D&C 59:10-12]]; [[Doctrine and Covenants/Doctrine and Covenants/Doctrine and Covenants 76#^verse-112|76:112]].
+
+[[Study Helps/Bible Dictionary/El-elohe-Israel|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Elephant|Next Entry]]

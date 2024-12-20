@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Redemption|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Refiner|Next Entry]]
+
+ Between Egypt and Arabia. Probably best known because it was miraculously parted so that the Israelites under Moses' leadership could pass through on dry ground, whereas the armies of Pharaoh were drowned ([[Old Testament/Exodus/Exodus 13#^verse-18|Ex. 13:18]]; [[Old Testament/Exodus/Exodus 14#^verse-15|14:15-31]]; [[New Testament/Acts/Acts 7#^verse-36|Acts 7:36]]; [[New Testament/Hebrews/Hebrews 11#^verse-29|Heb. 11:29]]). The parting of the sea by Moses is confirmed in latter-day revelation in [[Book of Mormon/1 Nephi/1 Nephi 4#^verse-2|1 Ne. 4:2]]; [[Book of Mormon/1 Nephi/1 Nephi 17#^verse-26|17:26-27]]; [[Book of Mormon/Helaman/Helaman 8#^verse-11|Hel. 8:11]]; [[Pearl of Great Price/Moses/Moses 1#^verse-25|Moses 1:25]]. Solomon had a fleet on the Red Sea ([[Old Testament/1 Kings/1 Kings 9#^verse-26|1 Kgs. 9:26]]).
+
+[[Study Helps/Bible Dictionary/Redemption|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Refiner|Next Entry]]

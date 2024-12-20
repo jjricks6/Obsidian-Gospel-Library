@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Ras Shamrah Tablets|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Recorder|Next Entry]]
+
+ Daughter of Bethuel and sister of Laban; married to Isaac ([[Old Testament/Genesis/Genesis 22#^verse-23|Gen. 22:23]]; [[Old Testament/Genesis/Genesis 24|24]]); mother of Esau and Jacob ([[Old Testament/Genesis/Genesis 25#^verse-20|25:20-28]]); pretends to be Isaac's sister ([[Old Testament/Genesis/Genesis 26#^verse-7|26:7, 8]]); angry with Esau ([[Old Testament/Genesis/Genesis 26#^verse-35|26:35]]), and helps to obtain the blessing for Jacob ([[Old Testament/Genesis/Genesis 27|27]]; [[Old Testament/Genesis/Genesis 28#^verse-5|28:5]]; [[Old Testament/Genesis/Genesis 29#^verse-12|29:12]]); her grave ([[Old Testament/Genesis/Genesis 49#^verse-31|49:31]]); her nurse ([[Old Testament/Genesis/Genesis 24#^verse-59|24:59]]; [[Old Testament/Genesis/Genesis 35#^verse-8|35:8]]).
+
+[[Study Helps/Bible Dictionary/Ras Shamrah Tablets|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Recorder|Next Entry]]

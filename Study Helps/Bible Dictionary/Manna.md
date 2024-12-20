@@ -1,0 +1,5 @@
+[[Study Helps/Bible Dictionary/Mandrake|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Maran-atha|Next Entry]]
+
+ It is impossible to find any natural product that will answer to the requirements of the scriptural narrative in regard to this heavensent food. With regard to the name, we are told ([[Old Testament/Exodus/Exodus 16#^verse-15|Ex. 16:15]]) that the people, seeing the small scale-like substance, said one to another, "Man-hu," "For they wist not what it was." This also translates "What is it?" See [[Old Testament/Exodus/Exodus 16#^verse-31|Ex. 16:31-35]]; [[Old Testament/Numbers/Numbers 11#^verse-7|Num. 11:7-9]]; [[Old Testament/Joshua/Joshua 5#^verse-12|Josh. 5:12]]; [[New Testament/John/John 6#^verse-31|John 6:31-32]]; [[New Testament/1 Corinthians/1 Corinthians 10#^verse-1|1 Cor. 10:1-4]]; [[New Testament/Hebrews/Hebrews 9#^verse-4|Heb. 9:4]]; [[New Testament/Revelation/Revelation 2#^verse-17|Rev. 2:17]].
+
+[[Study Helps/Bible Dictionary/Mandrake|Previous Entry]]  ||  [[Study Helps/Bible Dictionary/Maran-atha|Next Entry]]
