@@ -1,0 +1,4 @@
+/* hide blockID except if on active line */
+:not(.cm-active) > .cm-blockid {
+    opacity: 0;
+}
